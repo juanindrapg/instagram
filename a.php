@@ -1,1443 +1,591 @@
+<!DOCTYPE html><html lang="id" itemscope="itemscope" itemtype="http://schema.org/WebPage"><head><title>Cara Memperbanyak Follower Instagram Secara Gratis, Mudah, dan Cepat - Ragam Bola.com</title><meta charset="utf-8"><meta name="viewport" content="width=1024"><meta name="adx:sections" content="ragam"><meta name="title" content="Cara Memperbanyak Follower Instagram Secara Gratis, Mudah, dan Cepat - Ragam Bola.com"><meta name="description" content="Berikut ini rangkuman tentang cara memperbanyak follower Instagram yang mudah dan gratis."><meta name="keywords" content="Artikel Bola, Instagram, Cara menambah follower Instagram, Cara Memperbanyak Follower Instagram, Cara, Apa, Sportylife"><meta content="index,follow" name="googlebot-news">
+<meta content="index,follow" name="googlebot">
+<meta name="robots" content="index,follow">
+<meta content="Bola.com" name="author">
+<meta content="In-Id" http-equiv="content-language">
+<meta content="id" name="language">
+<meta content="id" name="geo.country">
+<meta content="Indonesia" name="geo.placename">
+<meta http-equiv="Content-Security-Policy" content="upgrade-insecure-requests">
+<meta name="ahrefs-site-verification" content="f0fc43bd1544ebba3e78fc1e77762d498b5372669d65bdbcf5752af599a5d05b">
+<meta name="msvalidate.01" content="AB164098494B4EF9CD5F4674201809B8">
+<meta name="msvalidate.01" content="8A609C27D3037D0B7DB2F607B5A691B8">
+<meta content="7ICmynlB-qVbwPWxU9z3gWcaj4A" name="alexaVerifyID">
+<meta name="p:domain_verify" content="71afac4b04c9a2865e98b48664490a79">
+<!-- Start FB Instant Article Claim Url--><meta property="fb:pages" content="727534940671821">
+<!-- EOF  FB Instant Article Claim Url--><!-- Start of Dable Property--><meta property="dable:item_id" content="4616653">
+<meta property="article:published_time" content="2021-07-27T19:20:43+07:00">
+<meta property="article:section" content="Sports">
+<meta property="article:section2" content="Ragam">
+<meta property="dable:author" content="Bola.com">
+<!-- End of Dable Property--><link rel="preconnect" href="https://securepubads.g.doubleclick.net">
+<meta name="robots" content="max-image-preview:large"><meta property="og:site_name" content="bola.com"><meta property="og:url" content="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><meta property="og:title" content="Cara Memperbanyak Follower Instagram Secara Gratis, Mudah, dan Cepat"><meta property="og:description" content="Berikut ini rangkuman tentang cara memperbanyak follower Instagram yang mudah dan gratis."><meta property="article:modified_time" content="2021-07-27T14:30:12+07:00"><meta property="og:updated_time" content="2021-07-27T14:30:12+07:00"><meta property="fb:app_id" content="441160097212381"><meta property="og:type" content="article"><meta property="og:image" content="https://cdn0-production-images-kly.akamaized.net/MgYit0Ee0c3jDqj2wpGSL6VbI1w=/1200x675/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/1689140/original/064396500_1503538497-IMG_20170824_083022.jpg"><meta name="twitter:card" content="summary_large_image"><meta name="twitter:site" content="@bolacomID"><meta name="twitter:creator" content="@bolacomID"><script>window.adblockExists=true;</script><script defer async src="https://cdn-production-assets-kly.akamaized.net/builds/advertisement.df330292.js"></script><link rel="dns-prefetch" href="//cdn0-production-assets-kly.akamaized.net"><link rel="dns-prefetch" href="//cdn1-production-assets-kly.akamaized.net"><link rel="dns-prefetch" href="//cdn0-production-images-kly.akamaized.net"><link rel="dns-prefetch" href="//cdn1-production-images-kly.akamaized.net"><link rel="dns-prefetch" href="//cdn-a.production.vidio.static6.com"><link rel="preload" href="https://cdn-production-assets-kly.akamaized.net/assets/fonts/bola/Gotham-Bold/Gotham-Bold.woff" as="font" type="font/woff" crossorigin /><link rel="preload" href="https://cdn-production-assets-kly.akamaized.net/assets/fonts/bola/Gotham-Medium/Gotham-Medium.woff" as="font" type="font/woff" crossorigin /><link rel="preload" href="https://cdn-production-assets-kly.akamaized.net/assets/fonts/bola/Helvetica-Neue/HelveticaNeue.woff" as="font" type="font/woff" crossorigin /><link rel="canonical" href="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><link rel="alternate" media="only screen and (max-width: 640px)" href="https://m.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><link rel="apple-touch-icon" sizes="57x57" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/apple-touch-icon-57x57.png?v=3"><link rel="apple-touch-icon" sizes="60x60" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/apple-touch-icon-60x60.png?v=3"><link rel="apple-touch-icon" sizes="72x72" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/apple-touch-icon-72x72.png?v=3"><link rel="apple-touch-icon" sizes="76x76" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/apple-touch-icon-76x76.png?v=3"><link rel="apple-touch-icon" sizes="114x114" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/apple-touch-icon-114x114.png?v=3"><link rel="apple-touch-icon" sizes="120x120" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/apple-touch-icon-120x120.png?v=3"><link rel="apple-touch-icon" sizes="144x144" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/apple-touch-icon-144x144.png?v=3"><link rel="apple-touch-icon" sizes="152x152" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/apple-touch-icon-152x152.png?v=3"><link rel="apple-touch-icon" sizes="180x180" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/apple-touch-icon-180x180.png?v=3"><link rel="icon" type="image/png" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/favicon-32x32.png?v=3" sizes="32x32"><link rel="icon" type="image/png" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/android-chrome-192x192.png?v=3" sizes="192x192"><link rel="icon" type="image/png" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/favicon-96x96.png?v=3" sizes="96x96"><link rel="icon" type="image/png" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/favicon-16x16.png?v=3" sizes="16x16"><link rel="manifest" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/manifest.json?v=3"><link rel="shortcut icon" href="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/favicon.ico?v=3"><meta name="msapplication-TileColor" content="#da532c"><meta name="msapplication-TileImage" content="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/mstile-144x144.png?v=3"><meta name="msapplication-config" content="https://cdn-production-assets-kly.akamaized.net/assets/images/bola/favicons/browserconfig.xml?v=3"><meta name="theme-color" content="#ffffff"><link rel="stylesheet" type="text/css" href="https://cdn-production-assets-kly.akamaized.net/builds/bola.8c5e4ac6.css" /><link rel="preload" as="style" onload="this.onload=null;this.rel='stylesheet'" id="custom-style" type="text/css" href="https://cdn-production-assets-kly.akamaized.net/custom_scripts/20211101093449.desktop.bola.css" /><noscript><link rel="stylesheet" href="https://cdn-production-assets-kly.akamaized.net/custom_scripts/20211101093449.desktop.bola.css" id="custom-style"></noscript><script>function ready(fn) {if (document.readyState != 'loading'){fn();} else {document.addEventListener('DOMContentLoaded', fn);}}</script><script src="https://ajax.googleapis.com/ajax/libs/jquery/2.1.0/jquery.min.js"></script><script type="text/javascript" data-component-name="script:local-jquery">window.jQuery || document.write("<script src='https://www.bola.com/assets/javascripts/vendor/jquery.min.js'><\/script>"); </script><script>window.dataLayer = window.dataLayer || [];</script><script type="text/javascript">var liputan6_id_site_id = "5";
+var liputan6_id_client_id = "7";
+var liputan6_id_client_token = "061a0cc36a8b8fff0399ba98347ae2a3";</script><script>(function(w,d,s,l,i){w[l]=w[l]||[];w[l].push({'gtm.start':
+new Date().getTime(),event:'gtm.js'});var f=d.getElementsByTagName(s)[0],
+j=d.createElement(s),dl=l!='dataLayer'?'&l='+l:'';j.async=true;j.src=
+'https://www.googletagmanager.com/gtm.js?id='+i+dl;f.parentNode.insertBefore(j,f);
+})(window,document,'script','dataLayer','GTM-WCLF9JK');</script><!--[if lte IE 8]><script   type="text/javascript" src="https://cdn-production-assets-kly.akamaized.net/builds/html5shiv.8d229fe9.js"></script><![endif]--><script type="text/javascript"> window.kmklabs = {};  window.kmklabs.env = 'production';  window.kmklabs.baseAssetsUrl = 'https://cdn-production-assets-kly.akamaized.net/assets';  window.kmklabs.gtm = {"articleId":4616653,"articleTitle":"cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat","category":"article","editors":"Aning Jati","editorialType":"editorial","embedVideo":"yes","pageTitle":"ragam - cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat","publicationDate":"2021-07-27","publicationTime":"19:20:43","subCategory":"ragam","subSubCategory":"ragam","tag":"Sportylife|Apa|Cara|Cara Memperbanyak Follower Instagram|Cara menambah follower Instagram|Instagram|Artikel Bola|Bola.com","authors":{"type":"author","names":"Faozan Tri Nugroho"},"numberOfWords":602,"enabled":true,"log":false,"imageCreation":false,"type":"TextTypeArticle","videos":{"video_1":{"video_id":"1964808","video_type":"embed","player_type":"widget"}},"photos":{"photo_1":{"photo_id":1689140,"create_date":"24-08-2017","photographer":"M Hidayat","photo_type":"article"},"photo_2":{"photo_id":3060827,"create_date":"26-02-2020","photographer":"Adinda Tri Wardhani","photo_type":"article"},"photo_3":{"photo_id":3448206,"create_date":"05-05-2021","photographer":"Aning Jati","photo_type":"article"},"photo_4":{"photo_id":3230755,"create_date":"07-09-2020","photographer":"Faozan Tri Nugroho","photo_type":"article"},"photo_5":{"photo_id":3303764,"create_date":"23-11-2020","photographer":"Aning Jati","photo_type":"article"},"photo_6":{"photo_id":2998606,"create_date":"17-12-2019","photographer":"Fimela Editor","photo_type":"article"},"photo_7":{"photo_id":2387289,"create_date":"19-10-2018","photographer":"Asnida Riani","photo_type":"article"},"photo_8":{"photo_id":3084448,"create_date":"24-03-2020","photographer":"Karla Farhana","photo_type":"article"}},"partner":"","isSEO":false,"reporters":"Faozan Tri Nugroho","photographers":"Adinda Tri Wardhani, Aning Jati, Asnida Riani, Faozan Tri Nugroho, Fimela Editor, Karla Farhana, M Hidayat","isLiveReport":false,"liveReportTag":"","audience":"smartphones|education|telecommunications","brand":""};  window.kmklabs.visitor = {"publicationDate":"2021-07-27","publicationTime":"19:20:43","tag":["sportylife","apa","cara","cara memperbanyak follower instagram","cara menambah follower instagram","instagram","artikel bola","bola.com"],"subCategory":"ragam","subSubCategory":"","type":"TextTypeArticle","pageType":"ReadPage","audience":["smartphones","education","telecommunications"],"age":"","gender":"","title":"cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat","platform":"Desktop","site":"bola.com","isAdultContent":false};  window.kmklabs.platform = 'Desktop';  window.kmklabs.pageType = 'ReadPage';  window.kmklabs.channel = {"id":486,"name":"Ragam","full_slug":"ragam"};  window.kmklabs.category = {"id":486,"name":"Ragam","full_slug":"ragam"};  window.kmklabs.article = {"id":4616653,"title":"Cara Memperbanyak Follower Instagram Secara Gratis, Mudah, dan Cepat","type":"TextTypeArticle","shortDescription":"Berikut ini rangkuman tentang cara memperbanyak follower Instagram yang mudah dan gratis.","keywords":"Bola.com,Artikel Bola,Instagram,Cara menambah follower Instagram,Cara Memperbanyak Follower Instagram,Cara,Apa,Sportylife","isAdvertorial":false,"isMultipage":true,"isAdultContent":false,"isDisableinteractions":false,"verifyAge":false,"publishDate":"2021-07-27 19:20:43"};  window.kmklabs.site = 'bola.com';  window.kmklabs.dmpSegments = []; window.kmklabs.multiplePageCount = 8;window.gaPrefix = "ReadPage::Ragam";
+ window.kmklabs.toggle = {"disableVirtualpvPhoto":false,"lip6DelayPaging":false,"checkDuplicateCms":false,"cmsCheckAllTag":false,"lip6NoPageLoad":true}; </script><script type="text/javascript">
+    function setKmklabsVisitorGaId() {
+        if (typeof ga === 'function') {
+            if (typeof ga.getAll == 'function') {
+                ga(function() {
+                    window.kmklabs.visitor.gaid = ga.getAll()[0].get('clientId');
+                });
+            } else {
+                setTimeout(setKmklabsVisitorGaId, 500);
+            }
+        } else {
+            setTimeout(setKmklabsVisitorGaId, 500);
+        }
+    }
+    setKmklabsVisitorGaId();
+</script><script defer  type="text/javascript" src="https://cdn-production-assets-kly.akamaized.net/builds/gtm.275922f6.js"></script><script> window._izq = window._izq || []; window._izq.push(["init" ]); </script> <script defer src="https://cdn.izooto.com/scripts/8641c5b452b42193921a3a5637ca31db12ebbdb0.js"></script><script type="text/javascript">; <!-- Page-hiding snippet (recommended)  -->
+(function(a,s,y,n,c,h,i,d,e){s.className+=' '+y;h.start=1*new Date;
+h.end=i=function(){s.className=s.className.replace(RegExp(' ?'+y),'')};
+(a[n]=a[n]||[]).hide=h;setTimeout(function(){i();h.end=null},c);h.timeout=c;
+})(window,document.documentElement,'async-hide','dataLayer',4000,
+{'GTM-T8TZLMM':true});
 
-<!DOCTYPE html>
-<html lang="id-ID">
-<head >
-<meta charset="UTF-8" />
-<meta name="viewport" content="width=device-width, initial-scale=1" />
-<title>66 Cara Menambah Followers Instagram &amp; Twitter (18x Lipat)</title>
-<link rel="alternate" hreflang="id-id" href="http://panduanim.com/menambah-followers/" />
 
-<!-- This site is optimized with the Yoast SEO plugin v12.4 - https://yoast.com/wordpress/plugins/seo/ -->
-<meta name="description" content="Ingin meningkatkan followers di Instagram dan Twitter? Ingin mendapatkan banyak like di Facebook? Inilah satu-satunya panduan yang anda butuhkan."/>
-<meta name="robots" content="max-snippet:-1, max-image-preview:large, max-video-preview:-1"/>
-<link rel="canonical" href="http://panduanim.com/menambah-followers/" />
-<meta property="og:locale" content="id_ID" />
-<meta property="og:type" content="article" />
-<meta property="og:title" content="66+ Strategi yang Bisa Anda Lakukan untuk Mendapatkan Followers dan Like di Instagram, Twitter, dan Facebook" />
-<meta property="og:description" content="Ingin meningkatkan followers di Instagram dan Twitter? Ingin mendapatkan banyak like di Facebook? Inilah satu-satunya panduan yang anda butuhkan." />
-<meta property="og:url" content="http://panduanim.com/menambah-followers/" />
-<meta property="og:site_name" content="PanduanIM" />
-<meta property="article:publisher" content="https://www.facebook.com/PanduanIM" />
-<meta property="article:author" content="https://facebook.com/PanduanIM" />
-<meta property="article:section" content="Social Media Marketing" />
-<meta property="article:published_time" content="2015-10-21T03:55:55+00:00" />
-<meta property="article:modified_time" content="2016-03-16T08:11:00+00:00" />
-<meta property="og:updated_time" content="2016-03-16T08:11:00+00:00" />
-<meta property="og:image" content="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Mendapatkan-Followers.png?fit=750%2C390&#038;quality=100&#038;strip=all" />
-<meta property="og:image:secure_url" content="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Mendapatkan-Followers.png?fit=750%2C390&#038;quality=100&#038;strip=all" />
-<meta property="og:image:width" content="750" />
-<meta property="og:image:height" content="390" />
-<meta name="twitter:card" content="summary_large_image" />
-<meta name="twitter:description" content="Ingin meningkatkan followers di Instagram dan Twitter? Ingin mendapatkan banyak like di Facebook? Inilah satu-satunya panduan yang anda butuhkan." />
-<meta name="twitter:title" content="66+ Strategi yang Bisa Anda Lakukan untuk Mendapatkan Followers dan Like di Instagram, Twitter, dan Facebook" />
-<meta name="twitter:site" content="@Panduan_IM" />
-<meta name="twitter:image" content="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Mendapatkan-Followers.png?fit=750%2C390&#038;quality=100&#038;strip=all" />
-<meta name="twitter:creator" content="@Panduan_IM" />
-<script type='application/ld+json' class='yoast-schema-graph yoast-schema-graph--main'>{"@context":"https://schema.org","@graph":[{"@type":"WebSite","@id":"http://panduanim.com/#website","url":"http://panduanim.com/","name":"PanduanIM","publisher":{"@id":"http://panduanim.com/#/schema/person/"},"potentialAction":{"@type":"SearchAction","target":"http://panduanim.com/?s={search_term_string}","query-input":"required name=search_term_string"}},{"@type":"ImageObject","@id":"http://panduanim.com/menambah-followers/#primaryimage","url":"https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Mendapatkan-Followers.png?fit=750%2C390&quality=100&strip=all","width":750,"height":390},{"@type":"WebPage","@id":"http://panduanim.com/menambah-followers/#webpage","url":"http://panduanim.com/menambah-followers/","inLanguage":"id-ID","name":"66 Cara Menambah Followers Instagram &amp; Twitter (18x Lipat)","isPartOf":{"@id":"http://panduanim.com/#website"},"primaryImageOfPage":{"@id":"http://panduanim.com/menambah-followers/#primaryimage"},"datePublished":"2015-10-21T03:55:55+00:00","dateModified":"2016-03-16T08:11:00+00:00","description":"Ingin meningkatkan followers di Instagram dan Twitter? Ingin mendapatkan banyak like di Facebook? Inilah satu-satunya panduan yang anda butuhkan."},{"@type":"Article","@id":"http://panduanim.com/menambah-followers/#article","isPartOf":{"@id":"http://panduanim.com/menambah-followers/#webpage"},"author":{"@id":"http://panduanim.com/#/schema/person/e7f135d0f8dcfdabeaae9d31529dc095"},"headline":"66+ Strategi yang Bisa Anda Lakukan untuk Mendapatkan Followers  dan Like di Instagram, Twitter, dan Facebook","datePublished":"2015-10-21T03:55:55+00:00","dateModified":"2016-03-16T08:11:00+00:00","commentCount":"15","mainEntityOfPage":{"@id":"http://panduanim.com/menambah-followers/#webpage"},"publisher":{"@id":"http://panduanim.com/#/schema/person/"},"image":{"@id":"http://panduanim.com/menambah-followers/#primaryimage"},"articleSection":"Social Media Marketing"},{"@type":["Person"],"@id":"http://panduanim.com/#/schema/person/e7f135d0f8dcfdabeaae9d31529dc095","name":"Darmawan","image":{"@type":"ImageObject","@id":"http://panduanim.com/#authorlogo","url":"http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=96&d=identicon&r=g","caption":"Darmawan"},"sameAs":["https://facebook.com/PanduanIM","https://twitter.com/Panduan_IM"]}]}</script>
-<!-- / Yoast SEO plugin. -->
+(function(i,s,o,g,r,a,m){i['GoogleAnalyticsObject']=r;i[r]=i[r]||function(){
+(i[r].q=i[r].q||[]).push(arguments)},i[r].l=1*new Date();a=s.createElement(o),
+m=s.getElementsByTagName(o)[0];a.async=1;a.src=g;m.parentNode.insertBefore(a,m)
+})(window,document,'script','https://www.google-analytics.com/analytics.js','ga');
 
-<link rel='dns-prefetch' href='//ajax.googleapis.com' />
-<link rel='dns-prefetch' href='//s0.wp.com' />
-<link rel='dns-prefetch' href='//s.w.org' />
-<link rel="alternate" type="application/rss+xml" title="PanduanIM &raquo; Feed" href="http://panduanim.com/feed/" />
-<link rel="alternate" type="application/rss+xml" title="PanduanIM &raquo; Umpan Komentar" href="http://panduanim.com/comments/feed/" />
-<link rel="alternate" type="application/rss+xml" title="PanduanIM &raquo; 66+ Strategi yang Bisa Anda Lakukan untuk Mendapatkan Followers  dan Like di Instagram, Twitter, dan Facebook Umpan Komentar" href="http://panduanim.com/menambah-followers/feed/" />
-		<script type="text/javascript">
-			window._wpemojiSettings = {"baseUrl":"https:\/\/s.w.org\/images\/core\/emoji\/11\/72x72\/","ext":".png","svgUrl":"https:\/\/s.w.org\/images\/core\/emoji\/11\/svg\/","svgExt":".svg","source":{"concatemoji":"http:\/\/panduanim.com\/wp-includes\/js\/wp-emoji-release.min.js?ver=4.9.16"}};
-			!function(a,b,c){function d(a,b){var c=String.fromCharCode;l.clearRect(0,0,k.width,k.height),l.fillText(c.apply(this,a),0,0);var d=k.toDataURL();l.clearRect(0,0,k.width,k.height),l.fillText(c.apply(this,b),0,0);var e=k.toDataURL();return d===e}function e(a){var b;if(!l||!l.fillText)return!1;switch(l.textBaseline="top",l.font="600 32px Arial",a){case"flag":return!(b=d([55356,56826,55356,56819],[55356,56826,8203,55356,56819]))&&(b=d([55356,57332,56128,56423,56128,56418,56128,56421,56128,56430,56128,56423,56128,56447],[55356,57332,8203,56128,56423,8203,56128,56418,8203,56128,56421,8203,56128,56430,8203,56128,56423,8203,56128,56447]),!b);case"emoji":return b=d([55358,56760,9792,65039],[55358,56760,8203,9792,65039]),!b}return!1}function f(a){var c=b.createElement("script");c.src=a,c.defer=c.type="text/javascript",b.getElementsByTagName("head")[0].appendChild(c)}var g,h,i,j,k=b.createElement("canvas"),l=k.getContext&&k.getContext("2d");for(j=Array("flag","emoji"),c.supports={everything:!0,everythingExceptFlag:!0},i=0;i<j.length;i++)c.supports[j[i]]=e(j[i]),c.supports.everything=c.supports.everything&&c.supports[j[i]],"flag"!==j[i]&&(c.supports.everythingExceptFlag=c.supports.everythingExceptFlag&&c.supports[j[i]]);c.supports.everythingExceptFlag=c.supports.everythingExceptFlag&&!c.supports.flag,c.DOMReady=!1,c.readyCallback=function(){c.DOMReady=!0},c.supports.everything||(h=function(){c.readyCallback()},b.addEventListener?(b.addEventListener("DOMContentLoaded",h,!1),a.addEventListener("load",h,!1)):(a.attachEvent("onload",h),b.attachEvent("onreadystatechange",function(){"complete"===b.readyState&&c.readyCallback()})),g=c.source||{},g.concatemoji?f(g.concatemoji):g.wpemoji&&g.twemoji&&(f(g.twemoji),f(g.wpemoji)))}(window,document,window._wpemojiSettings);
-		</script>
-		<style type="text/css">
-img.wp-smiley,
-img.emoji {
-	display: inline !important;
-	border: none !important;
-	box-shadow: none !important;
-	height: 1em !important;
-	width: 1em !important;
-	margin: 0 .07em !important;
-	vertical-align: -0.1em !important;
-	background: none !important;
-	padding: 0 !important;
-}
-</style>
-<link rel='stylesheet' id='genesis-sample-theme-css'  href='http://panduanim.com/wp-content/themes/genesis-sample/style.css?ver=2.1.320160213' type='text/css' media='all' />
-<link rel='stylesheet' id='tm_clicktotweet-css'  href='http://panduanim.com/wp-content/plugins/click-to-tweet-by-todaymade/assets/css/styles.css?ver=4.9.16' type='text/css' media='all' />
-<link rel='stylesheet' id='tve_style_family_tve_flt-css'  href='http://panduanim.com/wp-content/plugins/thrive-leads/tcb/editor/css/thrive_flat.css?ver=1.500.18' type='text/css' media='all' />
-<link rel='stylesheet' id='tve_leads_forms-css'  href='//panduanim.com/wp-content/plugins/thrive-leads/editor-layouts/css/frontend.css?ver=1.95.19' type='text/css' media='all' />
-<link rel='stylesheet' id='tve-leads-blank_set-css'  href='//panduanim.com/wp-content/plugins/thrive-leads/editor-templates/_form_css/blank_set.css?ver=1.95.19' type='text/css' media='all' />
-<link rel='stylesheet' id='wpml-legacy-dropdown-0-css'  href='http://panduanim.com/wp-content/plugins/sitepress-multilingual-cms/templates/language-switchers/legacy-dropdown/style.css?ver=1' type='text/css' media='all' />
-<style id='wpml-legacy-dropdown-0-inline-css' type='text/css'>
-.wpml-ls-statics-shortcode_actions{background-color:#ffffff;}.wpml-ls-statics-shortcode_actions, .wpml-ls-statics-shortcode_actions .wpml-ls-sub-menu, .wpml-ls-statics-shortcode_actions a {border-color:#cdcdcd;}.wpml-ls-statics-shortcode_actions a {color:#444444;background-color:#ffffff;}.wpml-ls-statics-shortcode_actions a:hover,.wpml-ls-statics-shortcode_actions a:focus {color:#000000;background-color:#eeeeee;}.wpml-ls-statics-shortcode_actions .wpml-ls-current-language>a {color:#444444;background-color:#ffffff;}.wpml-ls-statics-shortcode_actions .wpml-ls-current-language:hover>a, .wpml-ls-statics-shortcode_actions .wpml-ls-current-language>a:focus {color:#000000;background-color:#eeeeee;}
-</style>
-<link rel='stylesheet' id='dashicons-css'  href='http://panduanim.com/wp-includes/css/dashicons.min.css?ver=4.9.16' type='text/css' media='all' />
-<link rel='stylesheet' id='jetpack_css-css'  href='http://panduanim.com/wp-content/plugins/jetpack/css/jetpack.css?ver=7.1.2' type='text/css' media='all' />
-<script type='text/javascript' src="https://ajax.googleapis.com/ajax/libs/jquery/1.11.1/jquery.min.js?ver=1.11.1"></script>
-<script type='text/javascript' src='http://panduanim.com/wp-includes/js/jquery/jquery-migrate.min.js?ver=1.4.1'></script>
-<script type='text/javascript' src='http://panduanim.com/wp-content/plugins/thrive-leads/tcb/editor/js/compat.min.js?ver=1.500.18'></script>
-<script type='text/javascript' src='http://panduanim.com/wp-content/plugins/sitepress-multilingual-cms/templates/language-switchers/legacy-dropdown/script.js?ver=1'></script>
-<!--[if lt IE 9]>
-<script type='text/javascript' src='http://panduanim.com/wp-content/themes/genesis/lib/js/html5shiv.min.js?ver=3.7.3'></script>
-<![endif]-->
-<link rel='https://api.w.org/' href='http://panduanim.com/wp-json/' />
-<link rel="EditURI" type="application/rsd+xml" title="RSD" href="http://panduanim.com/xmlrpc.php?rsd" />
-<link rel="wlwmanifest" type="application/wlwmanifest+xml" href="http://panduanim.com/wp-includes/wlwmanifest.xml" /> 
-<meta name="generator" content="WordPress 4.9.16" />
-<link rel='shortlink' href='https://wp.me/p5AFCv-xP' />
-<link rel="alternate" type="application/json+oembed" href="http://panduanim.com/wp-json/oembed/1.0/embed?url=http%3A%2F%2Fpanduanim.com%2Fmenambah-followers%2F" />
-<link rel="alternate" type="text/xml+oembed" href="http://panduanim.com/wp-json/oembed/1.0/embed?url=http%3A%2F%2Fpanduanim.com%2Fmenambah-followers%2F&#038;format=xml" />
-<style type="text/css"> .enews .screenread {
-	height: 1px;
-    left: -1000em;
-    overflow: hidden;
-    position: absolute;
-    top: -1000em;
-    width: 1px; } </style><meta name="generator" content="WPML ver:3.8.4 stt:1,25;" />
+ga('create', 'UA-47200845-28', 'auto', {allowLinker: true, cookieDomain: 'bola.com'});
+ga('require', 'linkid', 'linkid.js');
+ga('require', 'displayfeatures');
+ga('require', 'GTM-T8TZLMM');
+// ga('kmkGATracker.send', 'pageview', url);
 
-<link rel='dns-prefetch' href='//v0.wordpress.com'/>
-<link rel='dns-prefetch' href='//i0.wp.com'/>
-<link rel='dns-prefetch' href='//i1.wp.com'/>
-<link rel='dns-prefetch' href='//i2.wp.com'/>
-<style type='text/css'>img#wpstats{display:none}</style><!-- Global site tag (gtag.js) - Google Analytics -->
-<script async src="https://www.googletagmanager.com/gtag/js?id=UA-54491604-2"></script>
-<script>
-  window.dataLayer = window.dataLayer || [];
-  function gtag(){dataLayer.push(arguments);}
-  gtag('js', new Date());
 
-  gtag('config', 'UA-54491604-2');
+(function() {
+var url = location.pathname + location.search;
+
+window.kmklabs = window.kmklabs || window.info;
+
+  if(window.kmklabs && window.kmklabs.article) {
+    if(window.kmklabs.article.isAdvertorial) {
+      url += '?adv=1';
+    }
+  }
+/*
+ ga('create', 'UA-47200845-28', 'auto');
+ ga('send', 'pageview', url);
+*/
+
+window.kmklabs.featureToggle = {};
+window.kmklabs.featureToggle.gaSendPageview = false;
+window.kmklabs.featureToggle.gaSendEventNative = false;
+
+})();
+
 </script>
-			<style type="text/css">
-				/* If html does not have either class, do not show lazy loaded images. */
-				html:not( .jetpack-lazy-images-js-enabled ):not( .js ) .jetpack-lazy-image {
-					display: none;
-				}
-			</style>
-			<script>
-				document.documentElement.classList.add(
-					'jetpack-lazy-images-js-enabled'
-				);
-			</script>
-		<link rel="icon" href="https://i2.wp.com/panduanim.com/wp-content/uploads/2016/03/cropped-favicon.png?fit=32%2C32&#038;quality=100&#038;strip=all" sizes="32x32" />
-<link rel="icon" href="https://i2.wp.com/panduanim.com/wp-content/uploads/2016/03/cropped-favicon.png?fit=192%2C192&#038;quality=100&#038;strip=all" sizes="192x192" />
-<link rel="apple-touch-icon-precomposed" href="https://i2.wp.com/panduanim.com/wp-content/uploads/2016/03/cropped-favicon.png?fit=180%2C180&#038;quality=100&#038;strip=all" />
-<meta name="msapplication-TileImage" content="https://i2.wp.com/panduanim.com/wp-content/uploads/2016/03/cropped-favicon.png?fit=270%2C270&#038;quality=100&#038;strip=all" />
-</head>
-<body class="post-template-default single single-post postid-2097 single-format-standard header-image full-width-content no-sidebar" itemscope itemtype="https://schema.org/WebPage"><div class="site-container"><header class="site-header" itemscope itemtype="https://schema.org/WPHeader"><div class="wrap"><div class="title-area"><p class="site-title" itemprop="headline"><a href="http://panduanim.com/">PanduanIM</a></p></div><div class="widget-area header-widget-area"><section id="nav_menu-2" class="widget widget_nav_menu"><div class="widget-wrap"><nav class="nav-header" itemscope itemtype="https://schema.org/SiteNavigationElement"><ul id="menu-top-nav" class="menu genesis-nav-menu"><li id="menu-item-2277" class="menu-item menu-item-type-post_type menu-item-object-page current_page_parent menu-item-2277"><a href="http://panduanim.com/blog/" itemprop="url"><span itemprop="name">Blog</span></a></li>
-<li id="menu-item-217" class="menu-item menu-item-type-custom menu-item-object-custom menu-item-217"><a href="http://panduanim.com/panduan/" itemprop="url"><span itemprop="name">Panduan</span></a></li>
-<li id="menu-item-258" class="menu-item menu-item-type-post_type menu-item-object-page menu-item-258"><a href="http://panduanim.com/kontak/" itemprop="url"><span itemprop="name">Kontak</span></a></li>
-<li id="menu-item-962" class="menu-item menu-item-type-post_type menu-item-object-page menu-item-962"><a href="http://panduanim.com/daftar/" itemprop="url"><span itemprop="name">Daftar</span></a></li>
-</ul></nav></div></section>
-</div></div></header><div class="horizontal-opt-in widget-area"><div class="wrap"><section id="text-10" class="widget widget_text"><div class="widget-wrap">			<div class="textwidget"><p class="horizontal-bar-title">Dapatkan strategi marketing untuk meningkatkan traffic dan penjualan</p>
-<form action="//darmawan.us9.list-manage.com/subscribe/post?u=b9e21c7479e163b32f7cf9fab&amp;id=a911e4c81d" method="post" name="mc-embedded-subscribe-form" class="validate" target="_blank" novalidate>
-<div class="ck_control_group ck_email_field_group">
-        <label class="ck_label" for="ck_emailField" style="display: none">Email Address</label>
-          <input type="email" name="EMAIL" class="ck_email_address horizontal-bar-email" id="mce-EMAIL" placeholder="Masukkan alamat email..." required>
-      </div>
-<button class="button horizontal-bar-button subscribe_button ck_subscribe_button btn fields" id='ck_subscribe_button'>
-        Daftar
-      </button>
-    </form></div>
-		</div></section>
-</div></div><div class="site-inner"><div class="content-sidebar-wrap"><main class="content"><div class="breadcrumb"><span class="breadcrumb-link-wrap" itemprop="itemListElement" itemscope itemtype="https://schema.org/ListItem"><a href="http://panduanim.com/" itemprop="item"><span itemprop="name">Home</span></a></span> / <span class="breadcrumb-link-wrap" itemprop="itemListElement" itemscope itemtype="https://schema.org/ListItem"><a href="http://panduanim.com/category/social-media-marketing/" itemprop="item"><span itemprop="name">Social Media Marketing</span></a></span> / 66+ Strategi yang Bisa Anda Lakukan untuk Mendapatkan Followers  dan Like di Instagram, Twitter, dan Facebook</div><article class="post-2097 post type-post status-publish format-standard has-post-thumbnail category-social-media-marketing entry" itemscope itemtype="https://schema.org/CreativeWork"><header class="entry-header"><h1 class="entry-title" itemprop="headline">66+ Strategi yang Bisa Anda Lakukan untuk Mendapatkan Followers  dan Like di Instagram, Twitter, dan Facebook</h1>
-<p class="entry-meta"><em>oleh</em> <span class="entry-author" itemprop="author" itemscope itemtype="https://schema.org/Person"><a href="http://panduanim.com/author/darmawan/" class="entry-author-link" itemprop="url" rel="author"><span class="entry-author-name" itemprop="name">Darmawan</span></a></span> <a class="post-meta-twitter" rel="external nofollow" target="blank_" href="https://twitter.com/intent/follow?screen_name=Panduan_IM"><span class="dashicons dashicons-twitter"></span> Follow</a> <a class="post-meta-facebook" rel="external nofollow" target="blank_" href="https://www.facebook.com/PanduanIM"><span class="dashicons dashicons-facebook"></span> Like</a></p></header><img width="750" height="390" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Mendapatkan-Followers.png?fit=750%2C390&amp;quality=100&amp;strip=all" class="post-image jetpack-lazy-image" alt="" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Mendapatkan-Followers.png?w=750&amp;quality=100&amp;strip=all 750w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Mendapatkan-Followers.png?resize=300%2C156&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 750px) 100vw, 750px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Mendapatkan-Followers.png?fit=750%2C390&amp;quality=100&amp;strip=all&amp;is-pending-load=1" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7" /><div class="entry-content" itemprop="text"><p>Anda pasti pernah melihat orang/perusahaan yang aktif di Instagram, Twitter, atau Facebook dan punya banyak follower.</p>
-<p>Setiap kali membuat post baru, puluhan ribu like. Gila.</p>
-<p>Lalu anda merasa kagum dengan mereka, sehingga anda juga ingin mendapatkan banyak follower.</p>
-<p>Sekarang memang jamannya seperti itu. Semakin banyak jumlah follower-nya, semakin bangga pula rasanya.</p>
-<p>Tapi bukan hanya kebanggaan&#8230;</p>
-<p>&#8230;meskipun untuk hepi-hepi atau tujuan bisnis, memiliki banyak follower di social media bisa memberikan 3 manfaat besar:</p>
-<ol>
-<li>Otoritas &#8211; kita dipercaya sebagai orang yang ahli</li>
-<li>Pengaruh &#8211; ide yang kita tanamkan menyebar luas</li>
-<li>Penjualan &#8211; jelas, banyak orang = banyak pembeli</li>
-</ol>
-<p>Pertanyaannya, caranya gimana biar banyak follower?</p>
-<p>Padahal sudah buat banyak post yang bagus, lucu, menarik, tapi tiap hari cuma bertambah 1-2 followers.</p>
-<p>Dalam artikel ini, anda akan mempelajari 50 hal yang harus dilakukan dan tidak boleh dilakukan untuk mendapatkan follower di Instagram, Twitter, dan like di Facebook.</p>
-<p>Dan semuanya sudah terbukti.</p>
-<p><span id="more-2097"></span></p>
-<div class="content-box-blue">Di artikel ini ada lebih dari 60 tips untuk 3 social media: Twitter, Facebook, dan Instagram. Silahkan gunakan filter di bawah untuk memunculkan tips dalam kategori yang anda inginkan saja, supaya tidak terlalu banyak.</div>
-<form class="controls" id="filter-buttons"><br />
-<fieldset><h4 class="filter-title">Perlihatkan hanya tips yang berlaku di:</h4><div class="checkbox"><input type="checkbox" value=".Twitter" /><label>Twitter</label></div><div class="checkbox"><input type="checkbox" value=".Facebook" /><label>Facebook</label></div><div class="checkbox"><input type="checkbox" value=".Instagram" /><label>Instagram</label></div></fieldset><br />
-<fieldset><h4 class="filter-title">Perlihatkan hanya tips dalam kategori:</h4><div class="checkbox"><input type="checkbox" value=".Konten" /><label>Konten</label></div><div class="checkbox"><input type="checkbox" value=".Strategi" /><label>Strategi</label></div><div class="checkbox"><input type="checkbox" value=".Relasi" /><label>Relasi</label></div><div class="checkbox"><input type="checkbox" value=".Etika" /><label>Etika</label></div><div class="checkbox"><input type="checkbox" value=".Visibilitas" /><label>Visibilitas</label></div></fieldset><br />
-</form><div style="clear:both"></div>
-<div id="content-container" class="content-container"><div class="fail-message"><span>No items were found matching the selected filters</span></div><br />
-<div class="mix Twitter Facebook Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Buat konten yang bermanfaat</h3>
-<p>Apapun teknik yang anda terapkan, kalau kontennya tidak bermanfaat maka tidak akan bisa berhasil.</p>
-<p>Setiap kali ngepost di social media, tanyakan pada diri anda: &#8220;Apakah orang selain keluarga dan teman-teman dekat saya akan merasa ini bermanfaat?&#8221;</p>
-<p>Kesalahan utama, bahkan yang dilakukan oleh para selebriti, yaitu mereka membuat post yang terlalu fokus dengan diri sendiri. Curhatan-curhatan, misalnya.</p>
-<p>Kalau anda orang terkenal, tidak masalah&#8230;</p>
-<p>&#8230;tapi kalau anda baru mulai, pastikan bermanfaat bagi semua orang.</p>
-<p>Entah itu bermanfaat dalam arti berguna, menghibur, lucu, informatif, dan lain-lain. Intinya, orang lain harus mendapatkan &#8216;nilai&#8217; dari post anda.<br />
-</div><br />
-<div class="mix Twitter Facebook Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Buat konten yang bisa dibawa pulang</h3>
-<p>Atau dengan kata lain, file.</p>
-<p>Ebook, presentasi, dokumen, audio, video. Apapun, file yang bisa di-download oleh orang lain secara gratis dan bermanfaat bagi mereka.</p>
-<p>File punya nilai lebih tinggi dibandingkan teks biasa, sehingga akan mengundang banyak orang untuk datang kepada anda.<br />
-</div><br />
-<div class="mix Twitter Facebook Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Berikan opini terhadap berita/tren yang sedang hangat</h3>
-<p>Salah satu alasan utama seseorang menggunakan social media adalah karena mereka ingin mendapatkan kabar-kabar terbaru dengan lebih cepat.</p>
-<p>Tapi anda pasti akan kalah oleh jurnalis dalam urusan mendapatkan berita.</p>
-<p>Solusinya, berikan opini.</p>
-<p>Jangan hanya menulis informasi, tuangkan pendapat anda. Lebih bagus lagi apabila pendapat ini bisa membantu orang lain dalam berpikir atau bertindak.<br />
-</div><br />
-<div class="mix Twitter Konten Relasi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Retweet konten yang menarik dan relevan</h3>
-<p>Ada 2 manfaat dari retweet:</p>
-<ul>
-<li>Memberikan konten yang bagus kepada follower</li>
-<li>Mendapatkan reaksi positif dari pemilik tweet</li>
+
+<!-- Begin Dable Script / For inquiries, http://dable.io -->
+<script>
+(function(d,a,b,l,e,_) {
+d[b]=d[b]||function(){(d[b].q=d[b].q||[]).push(arguments)};e=a.createElement(l);
+e.async=1;e.charset='utf-8';e.src='//static.dable.io/dist/plugin.min.js';
+_=a.getElementsByTagName(l)[0];_.parentNode.insertBefore(e,_);
+})(window,document,'dable','script');
+dable('setService', 'bola.com');
+dable('sendLog');
+</script>
+<!-- End Dable Script / For inquiries, http://dable.io -->
+
+<script>; window.gaSendEvent = function(event, category, action, label, fieldsObject) {
+    window.ga && window.ga('kmkGATracker.send', 'event', category, action, label, fieldsObject);
+}; window.clickEvent = function (category, action, label){
+    window.ga && window.ga('kmkGATracker.send','event', category, action, label);
+}; </script></head><body class="articles show category-ragam immersive"><noscript><iframe src="https://www.googletagmanager.com/ns.html?id=GTM-WCLF9JK" height="0" width="0" style="display:none;visibility:hidden"></iframe></noscript><div id="fb-root"></div><div id="modal-login" role="dialog" class="modal fade" aria-hidden="true"></div><!-- temporary make this to xbt block, cause there still no asset for popup in clickdoctor --><div class="authentication--popup" data-component-name="desktop:authentication:popup"><div class="authentication--popup__background"></div><div class="authentication--popup__content"><div class="authentication--popup__header">Sukses</div><div class="authentication--popup__image"></div><p class="authentication--popup__info"></p><div class="authentication--popup__close" id="popup-close"><i class="i-close-login"></i></div></div></div>
+          <!-- START KLY BILLBOARD -->
+          <!-- /36504930/www.bola.com/dfp-billboard -->
+          <div id='div-gpt-ad-bolacom-billboard-oop' data-info='ad'></div>
+          <!-- END KLY BILLBOARD -->
+        <div class="container-wrapper"><header class="site-header fixed-header" role="banner" itemscope="itemscope" itemtype="http://schema.org/Organization"><div class="js-header-wrapper"><div class="navbar--top" role="navigation" data-component="desktop:navbar:top" data-component-name="desktop:navbar:top"><div class="navbar--top__wrapper"><script id="js_channelName" type="text/json">"Ragam"</script><div id="user-menu-container" class="navbar--top__user-menu top-user-menu"><ul class="navbar-right woi-shared-header-menu"></ul></div><p class="navbar--top--logo__site-title" itemprop="name" data-cache-key="https_bola.com:bump:2b8c8e876424ff8e4b79f97bad45acf5::top-logo-logo::0" data-cache-ttl="120" data-component-name="desktop:navbar:top:logo"><meta itemprop="logo" content="https://cdn0-production-assets-kly.akamaized.net/logos/417/original/005950000_1641782603-Desktop.png"><meta itemprop="url" content="https://www.bola.com"><a class="navbar--top--logo__link" itemprop="url" href="https://www.bola.com"><img class="navbar--top--logo__image" src="https://cdn0-production-assets-kly.akamaized.net/logos/417/original/005950000_1641782603-Desktop.png" alt="logo">bola</a></p><div class="navbar--top--search" data-component-name="desktop:navbar:top:search"><form id="search" class="navbar--top--search__form" role="search" method="get" action="https://www.bola.com/search" autocomplete="off"><input class="navbar--top--search__input" type="text" value="" name="q" id="q" placeholder="Berita olahraga apa yang ingin kamu cari hari ini?" maxlength="100"><i class="i-search-2 navbar--top--search__left-icon"></i><button class="navbar--top--search__button" type="submit"><i class="navbar--top--search__icon i-search"></i><span class="navbar--top--search__icon">CARI</span></button><div class="navbar--top--search__context-menu"><div class="navbar--top--search__context-menu-autocomplete" style="display:none;"></div><div class="navbar--top--search__context-menu-instant-search" style="display:none;"></div><div class="navbar--top--search__context-menu-history" style="display:none;"></div><div class="navbar--top--search__context-menu-popular" style="display:none;"></div></div></form></div></div></div></div><div class="navbar--menu " role="menu" data-slim="true" data-component="desktop:navbar:menu" data-cache-key="https_bola.com:bump:xhp_desktop__navbar__menu:a82eb7ba2fd7e9dad2f524f29185b67c:7:App\Publishing\Lib\Collections\Categories\Navigation:bola::94128f136c92f00f9c07709d6e40b140:cat_id#486" data-cache-ttl="120" data-component-name="desktop:navbar:menu"><div class="container navbar--menu__list-wrapper js-parent-more-menu"><ul class="navbar--menu__list js-more-menu js-top-nav-list"><li id="logo-slim-list-item" class="navbar--menu--item navbar--menu--item_logo-slim"><a class="navbar--menu--item__link navbar--menu--item__link_logo-slim js-navbar-item-slim-link" href="https://www.bola.com" title="home"><i class="i-logo-slim navbar--menu__logo-slim"></i></a></li><li id="channel-all" class="navbar--menu--item"><a class="navbar--menu--item__link js-navbar-item-link" href="https://www.bola.com" title="home">Home</a></li><li id="category-423" class="navbar--menu--item" data-component-name="desktop:navbar:menu:item"><a class="ui--a js-navbar-channel navbar--menu--item__link js-navbar-item-link" href="https://www.bola.com/indonesia" title="Indonesia" data-channel="Indonesia" data-gtm-channel="indonesia">Indonesia</a></li><li id="category-420" class="navbar--menu--item" data-component-name="desktop:navbar:menu:item"><a class="ui--a js-navbar-channel navbar--menu--item__link js-navbar-item-link" href="https://www.bola.com/inggris" title="Inggris" data-channel="Inggris" data-gtm-channel="inggris">Inggris</a></li><li id="category-567" class="navbar--menu--item" data-component-name="desktop:navbar:menu:item"><a class="ui--a js-navbar-channel navbar--menu--item__link js-navbar-item-link" href="https://www.bola.com/dunia" title="Dunia" data-channel="Dunia" data-gtm-channel="dunia">Dunia</a></li><li id="category-421" class="navbar--menu--item" data-component-name="desktop:navbar:menu:item"><a class="ui--a js-navbar-channel navbar--menu--item__link js-navbar-item-link" href="https://www.bola.com/spanyol" title="Spanyol" data-channel="Spanyol" data-gtm-channel="spanyol">Spanyol</a></li><li id="category-485" class="navbar--menu--item" data-component-name="desktop:navbar:menu:item"><a class="ui--a js-navbar-channel navbar--menu--item__link js-navbar-item-link" href="https://www.bola.com/moto-gp" title="MotoGP" data-channel="MotoGp" data-gtm-channel="moto-gp">MotoGP</a></li><li id="category-1071" class="navbar--menu--item" data-component-name="desktop:navbar:menu:item"><a class="ui--a js-navbar-channel navbar--menu--item__link js-navbar-item-link" href="https://www.bola.com/e-sports" title="E-sports" data-channel="ESports" data-gtm-channel="e-sports">E-sports</a></li><li id="category-486" class="navbar--menu--item" data-component-name="desktop:navbar:menu:item"><a class="ui--a js-navbar-channel navbar--menu--item__link js-navbar-item-link navbar--menu--item__link_active" href="https://www.bola.com/ragam" title="Ragam" data-channel="Ragam" data-gtm-channel="ragam">Ragam</a></li><li id="category-419" class="navbar--menu--item" data-component-name="desktop:navbar:menu:item"><a class="ui--a js-navbar-channel navbar--menu--item__link js-navbar-item-link" href="https://www.bola.com/video" title="Video" data-channel="Video" data-gtm-channel="video">Video</a></li><li id="category-418" class="navbar--menu--item" data-component-name="desktop:navbar:menu:item"><a class="ui--a js-navbar-channel navbar--menu--item__link js-navbar-item-link" href="https://www.bola.com/photo" title="Foto" data-channel="Photo" data-gtm-channel="photo">Foto</a></li></ul><div class="navbar--menu__right-panel"><div class="navbar--menu__search-wrapper"><a class="navbar--menu__search-button"><i class="navbar--menu__search-icon i-search-2"></i></a><div class="navbar--menu__search-form-container"><form id="search" class="navbar--menu__search-form" role="search" method="get" action="https://www.bola.com/search"><input class="navbar--menu__search-input" type="text" value="" name="q" id="q" placeholder="Cari di bola.com" autocomplete="off"></form></div></div></div></div></div></header><section id="breaking-news" class="breaking-news breaking-news_hide" data-component="desktop:breaking-news" data-component-name="desktop:breaking-news"><div class="breaking-news__container"><span class="breaking-news__title">INDONESIA:</span><span class="breaking-news__content"><a class="breaking-news__link" href="https://www.bola.com/inggris/read/4859231/statistik-puyeng-liverpool-vs-arsenal-0-0-di-carabao-cup-17-tembakan-yang-on-target-cuma-1">Statistik Puyeng Liverpool vs Arsenal 0-0 di Carabao Cup. Klik di sini!</a></span></div><div class="breaking-news__close"><i class="breaking-news__close-icon i-close-circle"></i></div></section><div class="container" id="flash-message"></div><div class="container-fluid"><div id="skinads" data-info="ad"><div class="article-ad article-ad_ad-sl" data-ad-type="sl" data-info="ad" data-component-name="desktop:article-ad"></div><div class="article-ad article-ad_ad-sr" data-ad-type="sr" data-info="ad" data-component-name="desktop:article-ad"><!-- START KLY SKINAD -->
+<!-- /36504930/www.bola.com/dfp-skinad -->
+<div id='div-gpt-ad-bolacom-skinad-oop' data-info='ad'></div>
+<!-- END KLY SKINAD --></div></div></div><div id="billboard-ad" data-info="ad"><div class="article-ad article-ad_ad-lb" data-ad-type="lb" data-info="ad" data-component-name="desktop:article-ad"><!-- START KLY BILLBOARD -->
+<!-- /36504930/www.bola.com/dfp-billboard -->
+<!-- <script>
+$( document ).ready(function() {
+	$(".fixed-header").before("<div id='div-gpt-ad-bolacom-billboard-oop' data-info='ad'></div>");
+});
+</script> -->
+<!-- END KLY BILLBOARD -->
+
+<!-- START KLY IMMERSIVE -->
+  <div id='div-gpt-ad-bolacom-immersive-oop' data-info='ad'></div>
+<!-- END KLY IMMERSIVE -->
+
+<!-- START KLY LEADERBOARD -->
+<!-- /36504930/www.bola.com/dfp-lb -->
+<div id='div-gpt-ad-bolacom-lb'></div>
+<div id='div-gpt-ad-bolacom-lb-direct-oop'></div>
+<!-- END KLY LEADERBOARD --></div></div><div id="otp" data-info="ad"><div class="article-ad article-ad_ad-otp" data-ad-type="otp" data-info="ad" data-component-name="desktop:article-ad"><!-- START KLY POP UP -->
+<!-- /36504930/www.bola.com/dfp-popup -->
+<div id='div-gpt-ad-bolacom-popup-oop' data-info='ad'></div>
+<!-- END KLY POP UP -->
+</br>
+<!-- START KLY BALLON -->
+<!-- /36504930/www.bola.com/dfp-balloon -->
+<div id='div-gpt-ad-bolacom-balloon-oop' style="position:fixed;bottom:0;left:0;z-index: 999;width: 80px;" data-info='ad'></div>
+<!-- END KLY BALLON -->
+
+<!-- START KLY NEWSTAG -->
+<!-- /36504930/www.bola.com/dfp-newsTag1 -->
+<div id='div-gpt-ad-bolacom-newsTag1-oop' data-info='ad'></div>
+<!-- END KLY NEWSTAG -->
+
+<!-- START KLY TOPFRAME -->
+<!-- /36504930/www.bola.com/dfp-topfrm -->
+<!-- <script>
+$( document ).ready(function() {
+	$("footer").after("<div id='div-gpt-ad-bolacom-topfrm-oop' data-info='ad'></div>");
+});
+</script> -->
+<!-- END KLY TOPFRAME -->
+
+<!-- START KLY BOTTOMFRAME -->
+<!-- /36504930/www.bola.com/dfp-bottomfrm -->
+<!-- <script>
+$( document ).ready(function() {
+	$("footer").after("<div id='div-gpt-ad-bolacom-bottomfrm-oop' data-info='ad'></div>");
+});
+</script> -->
+<!-- END KLY BOTTOMFRAME -->
+
+<!-- START KLY HEADLINE1 -->
+<!-- /36504930/www.bola.com/dfp-headline1 -->
+<div id='div-gpt-ad-bolacom-dfp-headline1-oop' data-info='ad'></div>
+<!-- END KLY HEADLINE1 -->
+
+<!-- START KLY HEADLINE2 -->
+<!-- /36504930/www.bola.com/dfp-headline2 -->
+<div id='div-gpt-ad-bolacom-dfp-headline2-oop' data-info='ad'></div>
+<!-- END KLY HEADLINE2 -->
+
+<!-- START KLY HEADLINE3 -->
+<!-- /36504930/www.bola.com/dfp-headline3 -->
+<div id='div-gpt-ad-bolacom-dfp-headline3-oop' data-info='ad'></div>
+<!-- END KLY HEADLINE3 -->
+
+<!-- START KLY INARTICLE -->
+<!-- /36504930/www.bola.com/dfp-inarticle -->
+<div id='div-gpt-ad-bolacom-inarticle-oop' data-info='ad'></div>
+<!-- END KLY INARTICLE -->
+
+<!-- START KLY NATIVEOUT -->
+<!-- /36504930/www.bola.com/dfp-nativeOut1 -->
+<div id='div-gpt-ad-bolacom-dfp-nativeOut1-oop' data-info='ad'></div>
+<!-- /36504930/www.bola.com/dfp-nativeOut4 -->
+<div id='div-gpt-ad-bolacom-dfp-nativeOut4-oop' data-info='ad'></div>
+<!-- /36504930/www.bola.com/dfp-nativeOut8 -->
+<div id='div-gpt-ad-bolacom-dfp-nativeOut8-oop' data-info='ad'></div>
+<!-- /36504930/www.bola.com/dfp-nativeOut12 -->
+<div id='div-gpt-ad-bolacom-dfp-nativeOut12-oop' data-info='ad'></div>
+<!-- END KLY NATIVEOUT --></div></div><div class="container-main"><div id="main" class="container-fluid clearfix"><section class="box " data-component-name="desktop:box"><div class="tags--box" data-component="desktop:tags:box" data-component-name="desktop:tags:box"><div class="tags--box__container"><div class="tags--box__pager-prev"><a id="tag-prev" href="#" class="tags--box--pager__prev" data-component-name="desktop:tags:box:pager"><i class="tags--box--pager__icon i-arrow-grey-reverse"></i><i class="tags--box--pager__icon i-arrow-reverse"></i></a></div><div class="tags--box__pager-next"><a id="tag-next" href="#" class="tags--box--pager__next" data-component-name="desktop:tags:box:pager"><i class="tags--box--pager__icon i-arrow-grey"></i><i class="tags--box--pager__icon i-arrow"></i></a></div><div class="tags--box__content "><ul class="tags--box--list cycle-slideshow" data-component="desktop:tags:box:list" data-cycle-fx="carousel" data-cycle-log="false" data-cycle-timeout="0" data-cycle-prev="#tag-prev" data-cycle-next="#tag-next" data-cycle-slides=".tags--box--item" data-cycle-carousel-visible="4" data-cycle-carousel-horizontal="true" data-site="bola" data-component-name="desktop:tags:box:list"><li class="tags--box--item " data-component-name="desktop:tags:box:item"><a id="tag-152355" class="tags--box--item__link" href="https://www.bola.com/tag/cara"><span class="tags--box--item__name">Cara</span></a></li><li class="tags--box--item " data-component-name="desktop:tags:box:item"><a id="tag-28212" class="tags--box--item__link" href="https://www.bola.com/tag/bulutangkis"><span class="tags--box--item__name">Bulutangkis</span></a></li><li class="tags--box--item " data-component-name="desktop:tags:box:item"><a id="tag-58367" class="tags--box--item__link" href="https://www.bola.com/tag/apa"><span class="tags--box--item__name">Apa</span></a></li><li class="tags--box--item " data-component-name="desktop:tags:box:item"><a id="tag-31330" class="tags--box--item__link" href="https://www.bola.com/tag/f1"><span class="tags--box--item__name">F1</span></a></li><li class="tags--box--item " data-component-name="desktop:tags:box:item"><a id="tag-33115" class="tags--box--item__link" href="https://www.bola.com/tag/nba"><span class="tags--box--item__name">NBA</span></a></li><li class="tags--box--item " data-component-name="desktop:tags:box:item"><a id="tag-588520" class="tags--box--item__link" href="https://www.bola.com/tag/bola-beli"><span class="tags--box--item__name">Bola Beli</span></a></li></ul></div></div></div></section><div class="container-article"><div class="inner-container-article"><ul class="read-page--breadcrumb" itemscope="" itemtype="http://schema.org/BreadcrumbList" data-component="desktop:read-page:breadcrumb" data-cache-key="https_bola.com:bump:bde67727b832635c008bd2ab791c5176::417_486__Category#486_1620627233" data-cache-ttl="120" data-component-name="desktop:read-page:breadcrumb"><li class="read-page--breadcrumb--item" itemprop="itemListElement" itemscope="" itemtype="http://schema.org/ListItem" data-component-name="desktop:read-page:breadcrumb:item"><i class="read-page--breadcrumb--item__icon i-arrow-grey"></i><a class="read-page--breadcrumb--item__title" href="https://www.bola.com" itemprop="item"><span itemprop="name">Home</span><meta itemprop="position" content="1"></a></li><li class="read-page--breadcrumb--item" itemprop="itemListElement" itemscope="" itemtype="http://schema.org/ListItem" data-component-name="desktop:read-page:breadcrumb:item"><i class="read-page--breadcrumb--item__icon i-arrow-grey"></i><a class="read-page--breadcrumb--item__title" href="https://www.bola.com/ragam" itemprop="item"><span itemprop="name">Ragam</span><meta itemprop="position" content="2"></a></li></ul><article class="hentry main" data-component-name="desktop:read-page"><div class="read-page-upper" data-cache-key="https_bola.com:bump:xhp_desktop__read_page__read_page_upper:10c2a3d6781012d11cf7d92787d40d3c:TextTypeArticle#4616653_1627371012:new_style" data-cache-ttl="120" data-component-name="desktop:read-page:read-page-upper"><header class="read-page--header" data-component-name="desktop:read-page:header"><h1 class="read-page--header--title entry-title" itemprop="headline" data-component-name="desktop:read-page:header:title">Cara Memperbanyak Follower Instagram Secara Gratis, Mudah, dan Cepat</h1><div id="author-4616653" class="read-page--header--author vcard" data-component="desktop:read-page:header:author" data-component-name="desktop:read-page:header:author"><a class="read-page--header--author__avatar-link url fn" href="https://www.bola.com/me/faozan.nugroho" title="Faozan Tri Nugroho" itemprop="url" rel="author"><picture class="read-page--header--author__avatar"><img src="https://cdn1-production-images-kly.akamaized.net/5yKDpP9TsZgIr_9zr8me-1v4aOY=/40x40/smart/filters:quality(90):strip_icc():format(jpeg)/kly-media-production/avatars/1881493/original/089109400_1558617764-Mengedit_Atau_Menambah_Informasi_pada_Profil_Facebook.jpg" alt="Faozan Tri Nugroho" class="read-page--header--author__avatar-img" data-width="40" data-height="40" data-template-var="image"></picture></a><div class="read-page--header--author__wrapper"><span itemtype="http://schema.org/Person" itemscope="itemscope"><a class="read-page--header--author__link url fn" href="https://www.bola.com/me/faozan.nugroho" itemprop="url" rel="author"><span class="read-page--header--author__prefix"></span><span class="read-page--header--author__name fn" itemprop="name">Faozan Tri Nugroho</span></a></span><p class="read-page--header--author__datetime-wrapper"><time class="read-page--header--author__datetime updated" itemprop="datePublished" datetime="2021-07-27 19:20:43">27 Jul 2021, 19:20 WIB<i class="read-page--header--author__arrow i-time-arrow"></i></time><time class="read-page--header--author__modified-time" itemprop="datePublished" datetime="27 Jul 2021, 19:20 WIB"><span class="read-page--header--author__modified-time--text">Diperbarui </span>27 Jul 2021, 19:20 WIB</time></p></div></div><div class="read-page--social-share top" data-component="desktop:read-page:social-share" data-component-name="desktop:read-page:social-share"><ul class="read-page--social-share__list"><li class="read-page--social-share__list-item"><a class="read-page--social-share__link read-page--social-share__link_facebook js-social-share" href="https://www.facebook.com/sharer/sharer.php?u=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%3Futm_source%3DDesktop%26utm_medium%3Dfacebook%26utm_campaign%3DShare_Top" data-popup-share="" rel="nofollow"><i class="read-page--social-share__icon i-gallery-facebook"></i></a></li><li class="read-page--social-share__list-item"><a class="read-page--social-share__link read-page--social-share__link_twitter js-social-share" href="https://twitter.com/intent/tweet?text=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%3Futm_source%3DDesktop%26utm_medium%3Dtwitter%26utm_campaign%3DShare_Top" data-popup-share="" rel="nofollow"><i class="read-page--social-share__icon i-gallery-twitter"></i></a></li><li class="read-page--social-share__list-item"><a class="read-page--social-share__link read-page--social-share__link_google-plus js-social-share" href="https://plus.google.com/share?url=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%3Futm_source%3DDesktop%26utm_medium%3Dgoogle%26utm_campaign%3DShare_Top" data-popup-share="" rel="nofollow"><i class="read-page--social-share__icon i-gallery-gplus"></i></a></li><li class="read-page--social-share__list-item"><a class="read-page--social-share__link read-page--social-share__link_email" href="mailto:?to=&amp;subject=%5BBOLA%5D%20Cara%20Memperbanyak%20Follower%20Instagram%20Secara%20Gratis%2C%20Mudah%2C%20dan%20Cepat&amp;body=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%3Futm_source%3DDesktop%26utm_medium%3Dmail%26utm_campaign%3DShare_Top" rel="nofollow"><i class="read-page--social-share__icon i-gallery-email"></i></a></li></ul><div class="read-page--social-share__share-count"><span class="read-page--social-share__share-count-label"></span><span class="read-page--social-share__share-count-value">13</span></div></div><meta itemprop="image" content="https://cdn0-production-images-kly.akamaized.net/MgYit0Ee0c3jDqj2wpGSL6VbI1w=/1200x675/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/1689140/original/064396500_1503538497-IMG_20170824_083022.jpg"><meta itemprop="thumbnailUrl" content="https://cdn0-production-images-kly.akamaized.net/stUWY3Ee9LU9Nmo0tJtD-7WRn10=/144x81/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/1689140/original/064396500_1503538497-IMG_20170824_083022.jpg"></header><div class="read-page--content"><div class="read-page--top-media" data-component="desktop:read-page:top-media" data-component-name="desktop:read-page:top-media"><figure class="read-page--photo-gallery--item" id="gallery-image-1689140" data-photo-gallery-page="1" data-image="https://cdn0-production-images-kly.akamaized.net/mrw9dNBEypYPm-zjocvQi4HFVTg=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/1689140/original/064396500_1503538497-IMG_20170824_083022.jpg" data-description="Ilustrasi Instagram di Smartphone Android. Liputan6.com/Mochamad Wahyu Hidayat" data-title="Ilustrasi Instagram di Smartphone Android." data-share-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat?photo=1689140" data-photo-id="?photo=1689140" data-copy-link-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat" data-component="desktop:read-page:photo-gallery:item" data-component-name="desktop:read-page:photo-gallery:item"><div class="read-page--photo-gallery--item__content js-gallery-content"><a href="#" class="read-page--photo-gallery--item__link"><picture class="read-page--photo-gallery--item__picture"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="640" height="360" data-src="https://cdn0-production-images-kly.akamaized.net/mrw9dNBEypYPm-zjocvQi4HFVTg=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/1689140/original/064396500_1503538497-IMG_20170824_083022.jpg" data-width="640" data-height="360" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/-KFukD_t6JqOA_isv0aSpcvPKjU=/1280x720/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/1689140/original/064396500_1503538497-IMG_20170824_083022.jpg" alt="Ilustrasi Instagram di Smartphone Android." class="js-lazyload read-page--photo-gallery--item__picture-lazyload" data-template-var="image"></picture><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_zoom i-gallery-zoom js-icon-zoom"></span><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_plus i-gallery-plus js-icon-plus"></span></a><div class="read-page--photo-gallery--item__social-share js-social-share"><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://www.facebook.com/sharer/sharer.php?u=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_facebook i-gallery-facebook"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://twitter.com/intent/tweet?text=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_twitter i-gallery-twitter"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://plus.google.com/share?url=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_google-plus i-gallery-gplus"></span></a><a class="read-page--photo-gallery--item__share-button" href="mailto:?to=&amp;subject=%5BBOLA%5D%20Cara%20Memperbanyak%20Follower%20Instagram%20Secara%20Gratis%2C%20Mudah%2C%20dan%20Cepat&amp;body=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_email i-gallery-email"></span></a><a class="read-page--photo-gallery--item__share-button js-copy-link" href="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_copy-link i-gallery-copy-link"></span></a></div></div><figcaption class="read-page--photo-gallery--item__caption"><span>Ilustrasi Instagram di Smartphone Android. Liputan6.com/Mochamad Wahyu Hidayat</span></figcaption></figure></div><div class="article-content-body article-content-body_with-aside" data-component="desktop:read-page:article-content-body" itemprop="articleBody" data-component-name="desktop:read-page:article-content-body"><div class="article-content-body__item-page " data-page="1" data-title=""><div class="article-content-body__item-content" data-component-name="desktop:read-page:article-content-body:section:text"><p><b>Bola.com, Jakarta -</b> Saat ini, <strong><a href="https://www.bola.com/tag/instagram">Instagram</a></strong> menjadi satu di antara media sosial yang sangat populer. Banyak orang dari berbagai kalangan menggunakan Instagram sebagai penunjang hidup.</p>
+<p>Melalui Instagram, memungkinkan pengguna mengambil dan berbagi foto dan video. Kemudian menerapkan filter digital, serta membagikannya ke berbagai jejaring sosial.</p>
+<div class="baca-juga" data-category="Ragam" data-cache-key="https_bola.com:bump:TextTypeArticle#4616653::isNotMobile::c16f8f88bcb86f842d0e14767ceae070" data-cache-ttl="360" data-component-name="desktop:read-page:article-content-body:section:bacajuga">
+<p class="baca-juga__header">Baca Juga</p>
+<ul class="baca-juga__list">
+<li><a target="_blank" href="https://www.bola.com/ragam/read/4859214/lirik-lagu-merasa-indah-tiara-andini">Lirik Lagu Merasa Indah - Tiara Andini</a></li>
+<li><a target="_blank" href="https://www.bola.com/ragam/read/4859093/lirik-lagu-all-i-got-baekhyun">Lirik Lagu All I Got - Baekhyun</a></li>
+<li><a target="_blank" href="https://www.bola.com/ragam/read/4859089/lirik-lagu-bad-sad-and-mad-bibi">Lirik Lagu Bad Sad And Mad - BIBI</a></li>
 </ul>
-<p>Keduanya akan bermanfaat bagi anda.</p>
-<p>Ketika menemukan tweet yang menarik dari orang lain, jangan ragu untuk me-retweet. Tidak ada ruginya sama sekali, justru kedua pihak akan berterima kasih.</p>
-<p>Asalkan jangan retweet yang bidangnya berbeda jauh dari anda sendiri.<br />
-</div><br />
-<div class="mix Twitter Facebook Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Gunakan lebih dari sekedar tulisan</h3>
-<p>Dilihat dari datanya, post di social media yang berupa teks mendapatkan jumlah interaksi paling kecil dibandingkan jenis lain.</p>
-<p>Foto, video, link, hashtag, semuanya lebih bagus.</p>
-<p>Lihat data resmi dari Twitter ini:</p>
-<p><img class="aligncenter size-full wp-image-2058 jetpack-lazy-image" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Retweet-terbanyak.png?resize=561%2C277&#038;quality=100&#038;strip=all" alt="Retweet terbanyak" width="561" height="277" data-recalc-dims="1" data-lazy-srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Retweet-terbanyak.png?w=561&amp;quality=100&amp;strip=all 561w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Retweet-terbanyak.png?resize=300%2C148&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 561px) 100vw, 561px" data-lazy-src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Retweet-terbanyak.png?resize=561%2C277&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2058" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Retweet-terbanyak.png?resize=561%2C277&#038;quality=100&#038;strip=all" alt="Retweet terbanyak" width="561" height="277" srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Retweet-terbanyak.png?w=561&amp;quality=100&amp;strip=all 561w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Retweet-terbanyak.png?resize=300%2C148&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 561px) 100vw, 561px" data-recalc-dims="1" /></noscript></p>
-<p>Tweet yang mengandung URL (foto dan video) mendapatkan jumlah retweet hingga 35% lebih banyak dibandingkan teks biasa.</p>
-<p>Bahkan sekedar hashtag pun lebih populer.</p>
-<p>Sementara ini hasil penelitian untuk Facebook:</p>
-<p><img class="aligncenter size-full wp-image-2059 jetpack-lazy-image" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Facebook-organic-reach.png?resize=677%2C319&#038;quality=100&#038;strip=all" alt="Facebook organic reach" width="677" height="319" data-recalc-dims="1" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Facebook-organic-reach.png?w=677&amp;quality=100&amp;strip=all 677w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Facebook-organic-reach.png?resize=300%2C141&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 677px) 100vw, 677px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Facebook-organic-reach.png?resize=677%2C319&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2059" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Facebook-organic-reach.png?resize=677%2C319&#038;quality=100&#038;strip=all" alt="Facebook organic reach" width="677" height="319" srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Facebook-organic-reach.png?w=677&amp;quality=100&amp;strip=all 677w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Facebook-organic-reach.png?resize=300%2C141&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 677px) 100vw, 677px" data-recalc-dims="1" /></noscript></p>
-<p>Link merajai.</p>
-<p>Jadi, daripada sekedar menulis teks, carilah link. Bisa berupa bacaan, video, foto, apapun. Yang penting lebih dari sekedar teks.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Jadwalkan post pada jam-jam optimal</h3>
-<p>Beda jam, beda hasilnya.</p>
-<p>Jam optimal itu maksudnya waktu ketika jumlah follower yang aktif tinggi dan jumlah post dari orang lain sedikit. Sehingga post dari kita lah yang paling banyak dilihat.</p>
-<p>Jam berapa?</p>
-<p>Jawabannya berbeda-beda, tapi ini beberapa gambar untuk patokan.</p>
-<p><strong>Twitter:</strong></p>
-<p><img class="aligncenter size-full wp-image-2061 jetpack-lazy-image" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-yang-optimal-untuk-tweet.png?resize=797%2C971&#038;quality=100&#038;strip=all" alt="Waktu yang optimal untuk tweet" width="797" height="971" data-recalc-dims="1" data-lazy-srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-yang-optimal-untuk-tweet.png?w=797&amp;quality=100&amp;strip=all 797w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-yang-optimal-untuk-tweet.png?resize=246%2C300&amp;quality=100&amp;strip=all 246w" data-lazy-sizes="(max-width: 797px) 100vw, 797px" data-lazy-src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-yang-optimal-untuk-tweet.png?resize=797%2C971&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2061" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-yang-optimal-untuk-tweet.png?resize=797%2C971&#038;quality=100&#038;strip=all" alt="Waktu yang optimal untuk tweet" width="797" height="971" srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-yang-optimal-untuk-tweet.png?w=797&amp;quality=100&amp;strip=all 797w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-yang-optimal-untuk-tweet.png?resize=246%2C300&amp;quality=100&amp;strip=all 246w" sizes="(max-width: 797px) 100vw, 797px" data-recalc-dims="1" /></noscript></p>
-<p>Tidak ada waktu Indonesia, tapi mungkin di bagian Asia &amp; Australia lainnya bisa jadi pedoman.</p>
-<p><strong>Facebook:</strong></p>
-<p><img class="aligncenter size-full wp-image-2099 jetpack-lazy-image" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Facebook.png?resize=770%2C654&#038;quality=100&#038;strip=all" alt="Waktu terbaik untuk post di Facebook" width="770" height="654" data-recalc-dims="1" data-lazy-srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Facebook.png?w=770&amp;quality=100&amp;strip=all 770w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Facebook.png?resize=300%2C255&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 770px) 100vw, 770px" data-lazy-src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Facebook.png?resize=770%2C654&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2099" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Facebook.png?resize=770%2C654&#038;quality=100&#038;strip=all" alt="Waktu terbaik untuk post di Facebook" width="770" height="654" srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Facebook.png?w=770&amp;quality=100&amp;strip=all 770w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Facebook.png?resize=300%2C255&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 770px) 100vw, 770px" data-recalc-dims="1" /></noscript></p>
-<p>Di Facebook sebetulnya tidak ada 1 waktu yang benar-benar optimal.</p>
-<p>Beda kategorinya, beda waktunya. Misalnya orang yang biasa menggunakan Facebook untuk hiburan mungkin akan aktif akhir minggu. Tapi orang yang menggunakan Facebook untuk urusan bisnis akan aktif hari kerja.</p>
-<p>Maka dari itu, cara terbaik adalah mencoba sendiri. Kemudian lihat datanya di Facebook Page anda.</p>
-<p><strong>Instagram:</strong></p>
-<p><img class="aligncenter size-full wp-image-2100 jetpack-lazy-image" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Instagram.png?resize=586%2C418&#038;quality=100&#038;strip=all" alt="Waktu terbaik untuk post di Instagram" width="586" height="418" data-recalc-dims="1" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Instagram.png?w=586&amp;quality=100&amp;strip=all 586w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Instagram.png?resize=300%2C214&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 586px) 100vw, 586px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Instagram.png?resize=586%2C418&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2100" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Instagram.png?resize=586%2C418&#038;quality=100&#038;strip=all" alt="Waktu terbaik untuk post di Instagram" width="586" height="418" srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Instagram.png?w=586&amp;quality=100&amp;strip=all 586w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-di-Instagram.png?resize=300%2C214&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 586px) 100vw, 586px" data-recalc-dims="1" /></noscript></p>
-<p>Sore dan tengah malam ternyata waktu paling optimal untuk membuat post di Instagram.<br />
-</div><br />
-<div class="mix Twitter Instagram Relasi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Follow orang yang bakal tertarik dengan post anda</h3>
-<p>Mem-follow orang lain merupakan cara tercepat untuk mendapatkan follower.</p>
-<p>Alasannya, karena setiap kali di-follow kita akan mendapatkan notifikasi seperi ini:</p>
-<p><img class="aligncenter size-full wp-image-2101 jetpack-lazy-image" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Notifikasi-follow.png?resize=599%2C152&#038;quality=100&#038;strip=all" alt="Notifikasi follow" width="599" height="152" data-recalc-dims="1" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Notifikasi-follow.png?w=599&amp;quality=100&amp;strip=all 599w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Notifikasi-follow.png?resize=300%2C76&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 599px) 100vw, 599px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Notifikasi-follow.png?resize=599%2C152&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2101" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Notifikasi-follow.png?resize=599%2C152&#038;quality=100&#038;strip=all" alt="Notifikasi follow" width="599" height="152" srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Notifikasi-follow.png?w=599&amp;quality=100&amp;strip=all 599w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Notifikasi-follow.png?resize=300%2C76&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 599px) 100vw, 599px" data-recalc-dims="1" /></noscript></p>
-<p>Bahkan, <a href="https://www.quicksprout.com/2014/10/17/how-to-get-your-first-100-twitter-followers/" target="_blank">dikutip dari Quicksprout</a>, persentase follow-back di Twitter mencapai 20%:</p>
-<p><img class="aligncenter size-full wp-image-2102 jetpack-lazy-image" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Persentase-follow-back.png?resize=475%2C285&#038;quality=100&#038;strip=all" alt="Persentase follow back" width="475" height="285" data-recalc-dims="1" data-lazy-srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Persentase-follow-back.png?w=475&amp;quality=100&amp;strip=all 475w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Persentase-follow-back.png?resize=300%2C180&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 475px) 100vw, 475px" data-lazy-src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Persentase-follow-back.png?resize=475%2C285&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2102" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Persentase-follow-back.png?resize=475%2C285&#038;quality=100&#038;strip=all" alt="Persentase follow back" width="475" height="285" srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Persentase-follow-back.png?w=475&amp;quality=100&amp;strip=all 475w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Persentase-follow-back.png?resize=300%2C180&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 475px) 100vw, 475px" data-recalc-dims="1" /></noscript></p>
-<p>Karena sifatnya mirip, hal yang sama juga berlaku di Instagram.</p>
-<p>Gunakan fitur search di Twitter dan Instagram untuk menemukan orang-orang yang kira-kira bakal tertarik dengan konten anda, lalu follow mereka.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Pahami jenis-jenis post di social media</h3>
-<p>Ada 2 jenis orang yang aktif di social media:</p>
-<ul>
-<li><strong>Informers</strong>: orang yang senang berbagi informasi</li>
-<li><strong>Meformers</strong>: orang yang senang berbagi informasi, tentang dirinya sendiri</li>
-</ul>
-<p>Tipe pertama lebih banyak mendapatkan follower daripada tipe kedua.</p>
-<p>Padahal secara keseluruhan hanya ada 20% informer dan 80% meformer. Artinya sebagian besar orang lebih suka curhat.</p>
-<p>Ini jenis-jenis post di social media beserta contohnya:</p>
-<ul>
-<li>Sharing informasi: &#8220;Ini bacaan bagus tentang kasus korupsi pemerintah [link]&#8221;</li>
-<li>Promosi: &#8220;Ini artikel yang saya buat tentang HP Android [link]&#8221;</li>
-<li>Opini/komplain: &#8220;Lagunya si [artis] yang baru ini bagus ya&#8221;</li>
-<li>Pernyataan: &#8220;Lebih enak tinggal di Bali daripada Jakarta&#8221;</li>
-<li>Lagi apa: &#8220;Huff, capeknya abis pulang kerja&#8221;</li>
-<li>Pertanyaan ke follower: &#8220;Nanti sore enaknya share apa ya tweeps?&#8221;</li>
-<li>Muncul: &#8220;Akhirnya balik lagi ke Jakarta&#8221;, &#8220;Morning Tweeps!&#8221;</li>
-<li>Kisah sendiri: &#8220;Lupa bawa payung, kehujanan deh&#8221;</li>
-<li>Kisah orang lain: &#8220;Gila, ada orang berkelahi di depan SD 4. Yang satu meninggal&#8221;</li>
-</ul>
-<p>Kategorikan konten yang anda buat ke social media, pastikan apakah murni tentang diri sendiri atau orang lain juga bakal merasa bermanfaat.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Visibilitas" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Lengkapi profil, buat profil yang asik</h3>
-<p>Ada 2 hal yang ingin saya sampaikan terkait profil.</p>
-<p>Pertama, kalau anda ingin mendapatkan banyak follower, lengkapi semua profil. Tidak ada orang yang akan mem-follow akun dengan foto profil kosongan.</p>
-<p>Kedua, jangan jadi pribadi yang membosankan.</p>
-<p>Kita mem-follow orang lain di social media dengan tujuan mendapatkan sesuatu yang menarik dan tidak membosankan. Makanya profil, sebagai hal pertama yang dilihat harus menarik.</p>
-<p>Buat deskripsi/bio yang menarik. Kalau memang bisa dibuat lucu, buatlah jadi lucu.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Visibilitas" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Gunakan kata kunci yang relevan di profil</h3>
-<p>Jaman sekarang, banyak orang yang mencari orang lain lewat social media.</p>
-<p>Jadi, sertakan kata kunci yang relevan di profil anda.</p>
-<p>Siapa tahu, misalnya anda seorang penulis lalu ada yang ingin mencari penulis. Maka dengan menyertakan kata &#8220;penulis&#8221; di profil, mereka akan menemukan anda.</p>
-<p>Seperti ini:</p>
-<p><img class="aligncenter size-full wp-image-2103 jetpack-lazy-image" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Profil-dengan-keyword.png?resize=318%2C475&#038;quality=100&#038;strip=all" alt="Profil dengan keyword" width="318" height="475" data-recalc-dims="1" data-lazy-srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Profil-dengan-keyword.png?w=318&amp;quality=100&amp;strip=all 318w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Profil-dengan-keyword.png?resize=201%2C300&amp;quality=100&amp;strip=all 201w" data-lazy-sizes="(max-width: 318px) 100vw, 318px" data-lazy-src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Profil-dengan-keyword.png?resize=318%2C475&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2103" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Profil-dengan-keyword.png?resize=318%2C475&#038;quality=100&#038;strip=all" alt="Profil dengan keyword" width="318" height="475" srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Profil-dengan-keyword.png?w=318&amp;quality=100&amp;strip=all 318w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Profil-dengan-keyword.png?resize=201%2C300&amp;quality=100&amp;strip=all 201w" sizes="(max-width: 318px) 100vw, 318px" data-recalc-dims="1" /></noscript></p>
-<p>Jangan cuma dipenuhi dengan hal-hal konyol. Profil ini bisa jadi tempat paling strategis di akun anda.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Minta retweet/like/share</h3>
-<p>Sepertinya konyol, tapi ini efeknya luar biasa.</p>
-<p>Dengan meminta para follower untuk melakukan retweet/like/share, maka akan lebih banyak yang melakukan dibandingkan kalau tidak sama sekali.</p>
-<p>Perbedaannya sekitar 4x lipat!</p>
-<p><img class="aligncenter size-full wp-image-2104 jetpack-lazy-image" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Minta-retweet.png?resize=576%2C314&#038;quality=100&#038;strip=all" alt="Minta retweet" width="576" height="314" data-recalc-dims="1" data-lazy-srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Minta-retweet.png?w=576&amp;quality=100&amp;strip=all 576w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Minta-retweet.png?resize=280%2C153&amp;quality=100&amp;strip=all 280w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Minta-retweet.png?resize=300%2C164&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 576px) 100vw, 576px" data-lazy-src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Minta-retweet.png?resize=576%2C314&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2104" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Minta-retweet.png?resize=576%2C314&#038;quality=100&#038;strip=all" alt="Minta retweet" width="576" height="314" srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Minta-retweet.png?w=576&amp;quality=100&amp;strip=all 576w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Minta-retweet.png?resize=280%2C153&amp;quality=100&amp;strip=all 280w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Minta-retweet.png?resize=300%2C164&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 576px) 100vw, 576px" data-recalc-dims="1" /></noscript></p>
-<p>Tips sederhana tapi hasilnya luar biasa.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Visibilitas" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Taruh link ke akun social media di semua tempat yang terlihat orang lain</h3>
-<p>Ini hal paling mendasar yang selalu dilupakan.</p>
-<p>Kalau anda ingin mendapatkan follower di Twitter, Instagram, Facebook, atau yang lainnya, taruhlah link menuju akun anda di semua tempat yang terlihat oleh orang lain.</p>
-<p>Di email misalnya.</p>
-<p>Atau kalau anda aktif di forum komunitas online, taruh di signature atau tulis setiap kali membuat post baru di sana.</p>
-<p>Ini sepele tapi logis.</p>
-<p>Mustahil follower bisa bertambah kalau bukan anda yang aktif mempromosikan.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Relasi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Minta teman-teman sendiri untuk share/like/retweet</h3>
-<p>Anggaplah anda punya 100 teman/follower.</p>
-<p>Dari 100 itu, 20 di antaranya kenal baik dan bisa dimintai pertolongan.</p>
-<p>Masing-masing dari 20 orang itu punya 20 teman lain.</p>
-<p>Artinya setiap kali post anda di-share oleh 20 orang teman ini, di belakangnya ada 400 orang lain yang melihat.</p>
-<p>Bayangkan, dari 20 jadi 400.</p>
-<p>Kalau konten anda memang menarik, maka ada kemungkinan dari 400 itu sebagian kecil akan mem-follow. Anggaplah 5%, atau 20 orang.</p>
-<p>Kemudian 5% ini share lagi ke 20 orang yang lain.</p>
-<p>Dari sekedar sebuah permintaan kecil ke teman-teman terdekat, hasilnya akan jadi besar.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Etika" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Sebisa mungkin hindari logo sebagai foto profil</h3>
-<p>Kecuali kalau akun ini memang akun perusahaan.</p>
-<p>Kita sering tertipu melihat akun-akun dengan logo perusahaan yang punya ratusan ribu follower. Padahal mereka punya banyak follower justru karena mereka sudah terkenal.</p>
-<p>Lalu kita ikut-ikutan memakai logo&#8230;</p>
-<p>&#8230;akhirnya tidak ada yang mem-follow.</p>
-<p>Ini alasannya:</p>
-<p>Di social media, kita lebih suka mem-follow manusia dengan kepribadian daripada bisnis yang kerjaannya promosi. Maka rata-rata akun dengan foto manusia punya lebih banyak follower.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Relasi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Mention orang yang punya banyak follower</h3>
-<p>Saya paham, me-mention orang terkenal itu menyeramkan.</p>
-<p>Mereka punya ribuan follower&#8230;kita, cuma 100.</p>
-<p>Tapi percaya tidak percaya, ini salah satu cara terbaik untuk mendapatkan follower secara instan.</p>
-<p>Sekali kena retweet, favorite, reply, follower bakal langsung bertambah.</p>
-<p>Apa yang kita mention?</p>
-<p>Ini dia:</p>
-<ol>
-<li>Link bacaan yang kira-kira menarik bagi mereka</li>
-<li>Bertanya tentang pendapat mereka</li>
-<li>Kisah tentang mereka yang baru anda ketahui</li>
-<li>Pendapat anda tentang post mereka (bukan cuma respon)</li>
-<li>Konten dari website mereka + pendapat anda</li>
-</ol>
-<p></div><br />
-<div class="mix Twitter Facebook Instagram Relasi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Bicara 2 arah dengan para follower</h3>
-<p>Apa yang membuat orang lain melakukan retweet/like/share terhadap post anda?</p>
-<p>Karena bagus, sudah jelas.</p>
-<p>Tapi ada 1 alasan lagi.</p>
-<p>Karena mereka merasa punya hubungan dengan anda.</p>
-<p>Coba dibayangkan. Ada mem-follow 2 orang, keduanya menulis tentang suatu hal yang hampir sama. Intinya sama.</p>
-<p>Tapi anda lebih dekat dengan orang kedua.</p>
-<p>Nah, kalau anda ingin me-retweet/like/share salah satunya. Pilih mana?</p>
-<p>Ya.</p>
-<p>Itulah pentingnya berbicara 2 arah dengan follower.</p>
-<p>Jangan hanya ngepost 1 arah. Meskipun bermanfaat. Dengan menjalin hubungan dengan follower sendiri, mereka akan lebih interaktif dengan anda.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Visibilitas" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Buat blog anda sendiri</h3>
-<p>Rata-rata blogger punya lebih banyak follower.</p>
-<p>Alasannya:</p>
-<ol>
-<li>Mereka punya konten yang lebih bagus untuk dishare dari blognya</li>
-<li>Blog lebih mudah untuk mendapatkan pengunjung daripada akun social media</li>
-<li>Social media dan blog bisa saling membantu</li>
-</ol>
-<p>Maka dari itu, buatlah blog anda sendiri.</p>
-<p>Tidak sulit, tidak butuh biaya. Bahkan orang-orang yang tadinya ingin jadi populer di social media banyak yang akhirnya bakal lebih suka blogging.</p>
-<p>Silahkan <a href="http://panduanim.com/membuat-blog/" target="_blank">baca panduan ini untuk membuat blog</a>.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Post kata-kata mutiara dan motivasi</h3>
-<p>Tipe konten seperti ini yang biasanya paling mendapatkan banyak share.</p>
-<p>Tapi hati-hati&#8230;</p>
-<p>&#8230;kata mutiara yang saya maksud bukan sekedar copy paste dari orang terkenal. Justru hindari yang sudah terlalu umum dan sering digunakan.</p>
-<p>Sering-seringlah membaca artikel/buku.</p>
-<p>Kemudian ketika ada kalimat yang keren, post ke social media.</p>
-<p>Lebih bagus lagi, gunakan kalimat anda sendiri supaya jadinya jauh lebih mudah dipahami oleh  para follower.</p>
-<p>Kata mutiara yang bagus biasanya yang bisa memotivasi orang lain, atau yang isinya relevan dengan permasalahan hidup mereka.<br />
-</div><br />
-<div class="mix Twitter Visibilitas" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Monitor percakapan yang sesuai keyword</h3>
-<p>Misalnya anda punya akun Twitter yang berisi tips diet.</p>
-<p>Suatu hari Di suatu penjuru Twitter, ada 2 orang yang sedang berbincang tentang cara menurunkan berat badan.</p>
-<p>Kemudian anda merekomendasikan akun anda sendiri.</p>
-<p>Karena anda datang di saat yang tepat sesuai kebutuhan mereka, maka kemungkinan besar mereka akan datang menjadi follower.</p>
-<p>Inilah yang kita lakukan, memonitor keyword.</p>
-<p>Pertama-tama, daftar akun di tool gratis bernama <a href="https://warble.co/" target="_blank">Warble</a>.</p>
-<p>Setelah itu masukkan keyword yang anda ingin dapatkan pemberitahuannya. Misalnya kalau akun tentang tips diet tadi, keywordnya seperti ini:</p>
-<ol>
-<li>berat badan</li>
-<li>cara diet</li>
-<li>banyak lemak</li>
-<li>kegemukan</li>
-</ol>
-<p>Dan lain-lain.</p>
-<p>Setelah itu, anda akan dikirimkan email sekali sehari setiap kali ada yang menyebutkan keyword tersebut di Twitter.<br />
-</div><br />
-<div class="mix Twitter Konten Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Sesi kultwit, tapi hati-hati</h3>
-<p>Saya sering melihat akun-akun besar yang melakukan kultwit.</p>
-<p>Kepanjangannya &#8216;kuliah twit&#8217;, maksudnya dalam suatu  sesi itu si pemilik akun akan membahas suatu topik dalam beberapa tweet yang isinya berhubungan.</p>
-<p>Misalnya kultwit tips blogging, maka isinya seputar topik itu.</p>
-<p>Cara ini bisa jadi efektif.</p>
-<p>Tapi bisa justru membuat follower anda kabur.</p>
-<p>Yang harus anda perhatikan, apakah follower anda memang butuh informasi tentang kultwit tersebut? Apakah mereka akan tertarik?</p>
-<p>Kedua, pastikan isinya tidak terlalu panjang.</p>
-<p>Biasanya 10 tweet. Kalau jauh melebihi itu, anda justru akan dianggap pengganggu.</p>
-<p>Ketiga, ajak follower berpartisipasi.</p>
-<p>Bisa dengan mengajak mereka berpendapat tentang tweet anda, atau dengan mengajak mereka memberikan tips/ilmu/cerita sesuai topiknya.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Etika" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Jangan terlalu banyak promosi, dalam bentuk apapun</h3>
-<p>Sebagian besar orang menggunakan social media untuk mengetahui kabar dari keluarga dan teman-teman mereka. Atau mengikuti tren yang hangat.</p>
-<p>Bukan untuk melihat anda promosi.</p>
-<p>Meskipun ada juga orang yang mem-follow akun-akun perusahaan, tapi tujuan mereka tetap untuk mengikuti kabar terbaru dari perusahaan tersebut.</p>
-<p>Inilah alasan mereka mem-follow akun brand:</p>
-<p><img class="aligncenter size-full wp-image-2105 jetpack-lazy-image" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Tujuan-memfollow-brand.png?resize=520%2C267&#038;quality=100&#038;strip=all" alt="Tujuan memfollow brand" width="520" height="267" data-recalc-dims="1" data-lazy-srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Tujuan-memfollow-brand.png?w=520&amp;quality=100&amp;strip=all 520w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Tujuan-memfollow-brand.png?resize=300%2C154&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 520px) 100vw, 520px" data-lazy-src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Tujuan-memfollow-brand.png?resize=520%2C267&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2105" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Tujuan-memfollow-brand.png?resize=520%2C267&#038;quality=100&#038;strip=all" alt="Tujuan memfollow brand" width="520" height="267" srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Tujuan-memfollow-brand.png?w=520&amp;quality=100&amp;strip=all 520w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Tujuan-memfollow-brand.png?resize=300%2C154&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 520px) 100vw, 520px" data-recalc-dims="1" /></noscript></p>
-<p>Mereka ingin mendapatkan sesuatu.</p>
-<p>Maka kalau anda ingin promosi, berikanlah sesuatu kepada mereka.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Berikan solusi atas permasalahan orang lain</h3>
-<p>Sudah kita bahas bahwa post terbaik adalah yang memberikan manfaat.</p>
-<p>Inilah jenis manfaat yang terbaik.</p>
-<p>Kalau kita berhasil memberikan solusi atas permasalahan orang lain, dalam seketika mereka akan jadi loyal kepada kita.</p>
-<p>Dibandingkan post yang berisi motivasi atau hiburan, mungkin jumlah share-nya lebih sedikit. Tapi manfaatnya di balik layar jauh lebih besar.</p>
-<p>Ini cara mencari konten solusi:</p>
-<ol>
-<li>Tentukan satu permasalahan utama dari follower anda</li>
-<li>Cari di Google, solusi yang populer</li>
-<li>Buat versi sederhana yang bisa langsung dilakukan sekarang juga oleh mereka</li>
-<li>Post</li>
-</ol>
-<p>Perhatikan tahap ketiga.</p>
-<p>Solusi yang anda berikan harus dalam bentuk paling sederhana dan bisa diterapkan langsung oleh orang lain.</p>
-<p>Mengapa?</p>
-<p>Karena orang-orang di social media itu tidak dalam kondisi aktif. Mereka adalah orang-orang yang sedang berdiam diri, sedang bosan.</p>
-<p>Mereka membuka Twitter atau FB bukan untuk memecahkan masalah.</p>
-<p>Maka dari itu, kalau anda memberikan solusi yang rumit maka justru akan diabaikan.<br />
-</div><br />
-<div class="mix Twitter Facebook Relasi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Share konten milik orang lain</h3>
-<p>Mendapatkan ide untuk post di social media itu sulit.</p>
-<p>Padahal kita harus membuat banyak&#8230;tambah sulit.</p>
-<p>Maka dari itu, solusi terbaiknya adalah dengan membagikan konten milik orang lain.</p>
-<p>Saat anda browsing di internet dan menemukan konten yang bagus, bookmark atau simpan link-nya.</p>
-<p>Saat kekurangan ide, post link tersebut ke akun anda.</p>
-<p>Dengan demikian follower anda akan tetap bisa mendapatkan bacaan yang bagus.</p>
-<p>Ada manfaat lain,</p>
-<p>Dengan membagikan konten milik orang lain yang anda temukan, maka anda secara tidak langsung menjalin hubungan dengan mereka.</p>
-<p>Kedepannya, ada kemungkinan mereka akan balik membagikan konten anda.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Pancing kontroversi, buat pendapat yang bertentangan</h3>
-<p>Kontroversi dan pendapat yang bertentangan dengan umum cenderung lebih banyak mendapatkan share/retweet.</p>
-<p>Tapi bukan yang sembarangan.</p>
-<p>Kontroversi yang dibuat harus masuk akal dan memang bisa diterima oleh sebagian kalangan, besar atau kecil.</p>
-<p>Kalau kontroversi yang anda buat jelas-jelas salah besar, reputasi yang jadi taruhannya.<br />
-</div><br />
-<div class="mix Twitter Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Tweet lebih dari 9x sehari</h3>
-<p>9 kali sehari adalah jumlah minimum kalau anda ingin mendapatkan banyak follower.</p>
-<p>Makin banyak makin baik.</p>
-<p>Lihat saja grafik ini:</p>
-<p><img class="aligncenter size-full wp-image-2106 jetpack-lazy-image" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/frekuensi-tweet.jpg?resize=480%2C308&#038;quality=100&#038;strip=all" alt="frekuensi tweet" width="480" height="308" data-recalc-dims="1" data-lazy-srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/frekuensi-tweet.jpg?w=480&amp;quality=100&amp;strip=all 480w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/frekuensi-tweet.jpg?resize=300%2C193&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 480px) 100vw, 480px" data-lazy-src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/frekuensi-tweet.jpg?resize=480%2C308&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2106" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/frekuensi-tweet.jpg?resize=480%2C308&#038;quality=100&#038;strip=all" alt="frekuensi tweet" width="480" height="308" srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/frekuensi-tweet.jpg?w=480&amp;quality=100&amp;strip=all 480w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/frekuensi-tweet.jpg?resize=300%2C193&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 480px) 100vw, 480px" data-recalc-dims="1" /></noscript></p>
-<p>Semakin banyak tweet per harinya, semakin tinggi followernya.</p>
-<p>Yang perlu anda perhatikan, jangan tweet terlalu banyak dalam rentang waktu yang singkat. Sebarkan secara merata, beri porsi lebih saat jam optimal.<br />
-</div><br />
-<div class="mix Facebook Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Post 1-2x sehari di Facebook, atau 10x seminggu</h3>
-<p>Berbeda dengan Twitter dan Instagram, di Facebook kita tidak boleh terlalu banyak membuat post baru.</p>
-<p>Facebook punya filter algoritma.</p>
-<p>Tidak semua post yang anda buat akan masuk ke News Feed para follower. Hanya 1-2 per hari yang akan masuk.</p>
-<p>Maka dari itu, lebih baik fokus di 1 post ini.</p>
-<p>Maksimalkan kualitas 1 post daripada membuat banyak post yang tidak berkualitas.</p>
-<p>Lihat frekuensi akun milik brand besar di FB:</p>
-<p><img class="aligncenter size-full wp-image-2107 jetpack-lazy-image" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Frekuensi-posting-FB.jpg?resize=530%2C214&#038;quality=100&#038;strip=all" alt="Frekuensi posting FB" width="530" height="214" data-recalc-dims="1" data-lazy-srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Frekuensi-posting-FB.jpg?w=530&amp;quality=100&amp;strip=all 530w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Frekuensi-posting-FB.jpg?resize=300%2C121&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 530px) 100vw, 530px" data-lazy-src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Frekuensi-posting-FB.jpg?resize=530%2C214&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2107" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Frekuensi-posting-FB.jpg?resize=530%2C214&#038;quality=100&#038;strip=all" alt="Frekuensi posting FB" width="530" height="214" srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Frekuensi-posting-FB.jpg?w=530&amp;quality=100&amp;strip=all 530w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Frekuensi-posting-FB.jpg?resize=300%2C121&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 530px) 100vw, 530px" data-recalc-dims="1" /></noscript></p>
-<p>Rata-rata 1-2 per hari. Bahkan ada yang hanya 2 hari sekali.<br />
-</div><br />
-<div class="mix Instagram Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Post 1-2x sehari atau lebih di Instagram</h3>
-<p>Sebenarnya anda bisa saja membuat banyak post di Instagram&#8230;</p>
-<p>&#8230;asalkan kontennya bagus.</p>
-<p>Masalahnya, konten di Instagram itu kualitasnya harus tinggi. Kalau tidak, maka follower anda akan segera pergi.</p>
-<p>Berdasarkan <a href="https://blog.bufferapp.com/how-often-post-social-media" target="_blank">Buffer</a>, akun milik brand-brand besar menerbitkan 1-2 post per hari di Instagram. Lebih dari itu, tidak ada efek negatif.<br />
-</div><br />
-<div class="mix Twitter Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Buat tweet sepanjang 71-100 huruf</h3>
-<p>Panjang optimal sebuah tweet adalah 71-100 huruf, tidak termasuk link.</p>
-<p><img class="aligncenter size-full wp-image-2108 jetpack-lazy-image" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Twitter.png?resize=880%2C259&#038;quality=100&#038;strip=all" alt="Panjang post optimal di Twitter" width="880" height="259" data-recalc-dims="1" data-lazy-srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Twitter.png?w=880&amp;quality=100&amp;strip=all 880w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Twitter.png?resize=300%2C88&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 880px) 100vw, 880px" data-lazy-src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Twitter.png?resize=880%2C259&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2108" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Twitter.png?resize=880%2C259&#038;quality=100&#038;strip=all" alt="Panjang post optimal di Twitter" width="880" height="259" srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Twitter.png?w=880&amp;quality=100&amp;strip=all 880w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Twitter.png?resize=300%2C88&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 880px) 100vw, 880px" data-recalc-dims="1" /></noscript><br />
-</div><br />
-<div class="mix Facebook Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Buat post di Facebook sepanjang 40 huruf</h3>
-<p>Panjang optimal sebuah post di Facebook adalah 40 huruf, tidak termasuk link.</p>
-<p><img class="aligncenter size-full wp-image-2109 jetpack-lazy-image" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Facebook.png?resize=871%2C242&#038;quality=100&#038;strip=all" alt="Panjang post optimal di Facebook" width="871" height="242" data-recalc-dims="1" data-lazy-srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Facebook.png?w=871&amp;quality=100&amp;strip=all 871w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Facebook.png?resize=300%2C83&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 871px) 100vw, 871px" data-lazy-src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Facebook.png?resize=871%2C242&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2109" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Facebook.png?resize=871%2C242&#038;quality=100&#038;strip=all" alt="Panjang post optimal di Facebook" width="871" height="242" srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Facebook.png?w=871&amp;quality=100&amp;strip=all 871w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Panjang-post-optimal-di-Facebook.png?resize=300%2C83&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 871px) 100vw, 871px" data-recalc-dims="1" /></noscript></p>
-<p>Data di atas berdasarkan Buffer.</p>
-<p>Meskipun begitu secara logika sebetulnya tidak ada panjang post optimal di Facebook, karena tergantung dari apa isinya.</p>
-<p>Kalau isinya memang panjang, maka buatlah panjang.</p>
-<p>Tapi kalau isinya pendek, jangan dibuat panjang.<br />
-</div><br />
-<div class="mix Twitter Relasi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Buat sesi tanya jawab dengan follower</h3>
-<p>Twitter punya fitur rekomendasi akun seperti gambar berikut:</p>
-<p><img class="aligncenter size-full wp-image-2110 jetpack-lazy-image" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Rekomendasi-akun-Twitter.png?resize=311%2C298&#038;quality=100&#038;strip=all" alt="Rekomendasi akun Twitter" width="311" height="298" data-recalc-dims="1" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Rekomendasi-akun-Twitter.png?w=311&amp;quality=100&amp;strip=all 311w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Rekomendasi-akun-Twitter.png?resize=300%2C287&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 311px) 100vw, 311px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Rekomendasi-akun-Twitter.png?resize=311%2C298&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2110" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Rekomendasi-akun-Twitter.png?resize=311%2C298&#038;quality=100&#038;strip=all" alt="Rekomendasi akun Twitter" width="311" height="298" srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Rekomendasi-akun-Twitter.png?w=311&amp;quality=100&amp;strip=all 311w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Rekomendasi-akun-Twitter.png?resize=300%2C287&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 311px) 100vw, 311px" data-recalc-dims="1" /></noscript></p>
-<p>Cara kerjanya begini&#8230;</p>
-<p>&#8230;apabila follower anda sering berinteraksi dengan sebuah akun di Twitter, maka anda akan mendapatkan rekomendasi untuk mem-follow akun tersebut.</p>
-<p>Jadi:</p>
-<p>Kalau follower anda banyak berinteraksi dengan anda, maka teman-teman mereka akan mendapatkan rekomendasi untuk mem-follow akun anda.</p>
-<p>Maka dari itu, buatlah sesi tanya jawab.</p>
-<p>Dengan demikian para follower akan me-mention anda.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Etika" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Jangan gunakan tool otomatisasi, terutama bagi akun baru</h3>
-<p>Ada tool-tool yang secara otomatis akan menerbitkan post di social media setiap kali ada artikel baru di sebuah website.</p>
-<p>Jangan lakukan ini.</p>
-<p>Sekilas sepertinya menarik. Follower kita jadi punya bahan bacaan.</p>
-<p>Tapi akibatnya akun anda akan jadi seperti spam. Terlalu sering membuat post berupa link, dari website yang itu-itu saja.</p>
-<p>Kalau anda memang ingin membagikan artikel yang menarik, lakukan secara manual. Ubah kata-kata yang digunakan sebagai judul artikel tersebut menjadi buatan anda sendiri.</p>
-<p>Tidak ada orang yang suka mem-follow akun spam.<br />
-</div><br />
-<div class="mix Twitter Facebook Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Jadi sumber bacaan bagi para follower</h3>
-<p>Kita sudah tahu bahwa di Twitter dan Facebook yang mendapatkan engagement tertinggi adalah post berupa link. Orang-orang di social media suka membaca artikel yang menarik.</p>
-<p>Lihat saja akun seperti @terselubung, punya banyak follower:</p>
-<p><img class="aligncenter size-full wp-image-2113 jetpack-lazy-image" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Followernya-terselubung.png?resize=595%2C305&#038;quality=100&#038;strip=all" alt="Followernya terselubung" width="595" height="305" data-recalc-dims="1" data-lazy-srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Followernya-terselubung.png?w=595&amp;quality=100&amp;strip=all 595w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Followernya-terselubung.png?resize=300%2C154&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 595px) 100vw, 595px" data-lazy-src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Followernya-terselubung.png?resize=595%2C305&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2113" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Followernya-terselubung.png?resize=595%2C305&#038;quality=100&#038;strip=all" alt="Followernya terselubung" width="595" height="305" srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Followernya-terselubung.png?w=595&amp;quality=100&amp;strip=all 595w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Followernya-terselubung.png?resize=300%2C154&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 595px) 100vw, 595px" data-recalc-dims="1" /></noscript></p>
-<p>Begitu pula dengan akun lain dari situs berita seperti Detik misalnya.</p>
-<p>Artinya, salah satu alasan terbesar untuk mem-follow adalah karena orang-orang ingin mendapatkan bacaan yang menarik.</p>
-<p>Maka dari itu, sediakanlah bacaan yang menarik.</p>
-<p>Lakukan ini:</p>
-<ol>
-<li>Cari 5 blog terpopuler dalam bidang yang anda sukai</li>
-<li>Daftar ke <a href="https://feedly.com/" target="_blank">Feedly.com</a></li>
-<li>Masukkan kelima blog tersebut di sana</li>
-<li>Periksa tiap hari untuk mendapatkan konten terbaru</li>
-<li>Post yang paling menarik ke FB atau Twitter</li>
-</ol>
-<p>Lebih bagus lagi kalau anda juga punya website sendiri.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Buat kontes berhadiah</h3>
-<p>Siapa sih yang tidak suka gratisan?</p>
-<p>Kalau anda punya sesuatu yang menarik untuk diberikan secara gratis kepada orang lain, inilah cara tercepat untuk mendapatkan banyak follower sekaligus.</p>
-<p>Ikuti langkah-langkah ini:</p>
-<ol>
-<li>Tentukan hadiah untuk diumumkan</li>
-<li>Tentukan apa yang harus mereka lakukan. Misalnya: mengirim foto dalam tema tertentu, menulis komentar</li>
-<li>Minta mereka untuk memfollow anda dan share atau retweet salah satu post. Buat gambar desain untuk hasil yang lebih bagus</li>
-<li>Pilih pemenangnya</li>
-<li>Berikan hadiahnya</li>
-</ol>
-<p>Hati-hati, jangan melakukan penipuan.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Tiru strategi dari mereka yang sudah populer</h3>
-<p>Apa yang sudah anda baca dari atas sampai poin ini adalah strategi-strategi yang sudah dilakukan oleh para praktisinya sendiri.</p>
-<p>Dengan mengamati apa yang mereka lakukan, kemudian meniru strategi mana yang efektif.</p>
-<p>Seperti itulah mestinya cara belajar yang baik.</p>
-<p>Selain itu, dalam social media marketing (dan strategi marketing lainnya) masing-masing bidang industri tidak sama.</p>
-<p>Dalam bidang A misalnya, strategi X lebih efektif. Tapi dalam bidang B, strategi X justru payah.</p>
-<p>Karena itu, lakukan ini:</p>
-<ol>
-<li>Cari 5-10 orang yang punya banyak follower di bidang yang sama dengan anda</li>
-<li>Follow mereka semua</li>
-<li>Lihat seperti apa post yang mendapatkan paling banyak interaksi</li>
-<li>Tiru dan tingkatkan</li>
-</ol>
-<p></div><br />
-<div class="mix Twitter Etika" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Jangan terlalu banyak ngobrol</h3>
-<p>Tidak ada yang perlu tahu percakapan antara anda dengan follower anda.</p>
-<p>Apabila dilakukan terlalu sering, maka justru konten-konten anda yang bagus akan terdorong ke bawah.</p>
-<p>Twitter punya fitur Direct Message, gunakan ini untuk berbicara langsung dengan seseorang.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Bayar iklan dari akun yang banyak followernya</h3>
-<p>Punya modal ekstra? Keluarkan beberapa untuk mendapatkan follower.</p>
-<p>Temukan akun-akun dalam bidang industri yang sama dengan anda, kemudian tanyakan apakah mereka menerima iklan.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Relasi Visibilitas" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Buat artikel daftar akun social media terpopuler dalam bidang tertentu</h3>
-<p>Sekitar tahun 2010 dulu saya punya sebuah blog dalam Bahasa Indonesia yang tidak terlalu saya perhatikan. Hanya ada beberapa artikel.</p>
-<p>Dari beberapa artikel itu, ada sekitar 5 artikel berisi kumpulan akun Twitter terpopuler.</p>
-<p>Ada yang dalam bidang teknologi, bisnis, dll.</p>
-<p>Meskipun blog tersebut tidak pernah saya perhatikan lagi, tapi artikel-artikel tersebut masih mendapatkan lumayan banyak pengunjung tiap harinya.</p>
-<p>Kalau anda punya blog, buatlah artikel seperti ini.</p>
-<p>Bisa akun Twitter, akun Instagram, atau Facebook Page. Buat jadi beberapa artikel dan pisahkan tiap bidang.</p>
-<p>Kemudian masukkan akun anda sendiri di dalamnya.</p>
-<p>Satu tips lagi, beritahukan mereka yang anda masukkan ke dalam artikel tersebut. Kemungkinan besar artikelnya akan mereka share.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Optimasi<em> call to action</em></h3>
-<p>Mengapa anda ingin mendapatkan banyak follower?</p>
-<p>Untuk meningkatkan penjualan?</p>
-<p>Meningkatkan pengunjung website?</p>
-<p>Kalau iya, maka anda harus mempelajari konsep call to action ini.</p>
-<p>Intinya, untuk setiap post yang mengajak follower untuk bertindak harus jelas apa tindakan yang anda inginkan&#8230;</p>
-<p>&#8230;dan apa manfaat yang mereka dapatkan.</p>
-<p>Misalnya anda ingin mereka membeli produk anda, maka ajak mereka untuk membeli dan beritahu mengapa mereka harus membeli.</p>
-<p>Lalu kalau anda ingin mereka share/retweet/like post anda, ajak mereka dan jelaskan mengapa mereka harus melakukan tindakan itu.</p>
-<p>Sebagai marketer yang baik, kita harus berasumsi bahwa mereka (target pasar kita) sama sekali tidak paham apapun. Jelaskan apa yang mereka dapatkan, jelaskan mengapa mereka harus melakukan itu.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Post yang berisi anjuran/larangan</h3>
-<p>Beberapa bulan yang lalu, di Facebook sempat ada semacam spam yang menyebar luas.</p>
-<p>Banyak orang yang akunnya secara otomatis mem-posting link dengan foto-foto porno. Kalau link ini di-klik, maka orang tersebut juga akan kena.</p>
-<p>Dari situ kemudian saya membuat tips anjuran/larangan supaya yang baca tidak ikut-ikutan kena.</p>
-<p>Ternyata post tersebut banyak di-share.</p>
-<p>Karena memang kenyataannya banyak yang butuh informasi tersebut.</p>
-<p>Inilah post anjuran/larangan.</p>
-<p>Ketika ada kabar/berita/isu hangat di kalangan anda, buatlah post seperti ini. Jumlah share-nya akan jadi lebih banyak daripada biasanya.<br />
-</div><br />
-<div class="mix Twitter Facebook Visibilitas" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Pelajari dan manfaatkan fitur analytics</h3>
-<p>Facebook Page dan Twitter punya fitur ini.</p>
-<p>Sayangnya karena banyak angka dan grafik, banyak orang yang memilih mengabaikan data mereka. Padahal kalau dimanfaatkan dengan benar bisa memperbanyak follower.</p>
-<p>Ini di Facebook, namanya Insights&#8230;</p>
-<p>Kita bisa melihat jam berapa dan hari apa yang optimal untuk menerbitkan post baru:</p>
-<p><img class="aligncenter size-full wp-image-2063 jetpack-lazy-image" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-Facebook1.png?resize=700%2C363&#038;quality=100&#038;strip=all" alt="Waktu terbaik untuk post Facebook" width="700" height="363" data-recalc-dims="1" data-lazy-srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-Facebook1.png?w=700&amp;quality=100&amp;strip=all 700w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-Facebook1.png?resize=300%2C156&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 700px) 100vw, 700px" data-lazy-src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-Facebook1.png?resize=700%2C363&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2063" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-Facebook1.png?resize=700%2C363&#038;quality=100&#038;strip=all" alt="Waktu terbaik untuk post Facebook" width="700" height="363" srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-Facebook1.png?w=700&amp;quality=100&amp;strip=all 700w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Waktu-terbaik-untuk-post-Facebook1.png?resize=300%2C156&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 700px) 100vw, 700px" data-recalc-dims="1" /></noscript></p>
-<p>Kita juga bisa mengetahui post mana yang mendapatkan paling banyak Reach dan Engagement:</p>
-<p><img class="aligncenter size-full wp-image-2114 jetpack-lazy-image" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Post-dengan-jangkauan-terbesar-di-Facebook.png?resize=704%2C316&#038;quality=100&#038;strip=all" alt="Post dengan jangkauan terbesar di Facebook" width="704" height="316" data-recalc-dims="1" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Post-dengan-jangkauan-terbesar-di-Facebook.png?w=704&amp;quality=100&amp;strip=all 704w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Post-dengan-jangkauan-terbesar-di-Facebook.png?resize=300%2C135&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 704px) 100vw, 704px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Post-dengan-jangkauan-terbesar-di-Facebook.png?resize=704%2C316&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2114" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Post-dengan-jangkauan-terbesar-di-Facebook.png?resize=704%2C316&#038;quality=100&#038;strip=all" alt="Post dengan jangkauan terbesar di Facebook" width="704" height="316" srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Post-dengan-jangkauan-terbesar-di-Facebook.png?w=704&amp;quality=100&amp;strip=all 704w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Post-dengan-jangkauan-terbesar-di-Facebook.png?resize=300%2C135&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 704px) 100vw, 704px" data-recalc-dims="1" /></noscript></p>
-<p>Dengan mengetahui keduanya, kita bisa merencanakan post-post yang jauh lebih efektif kedepannya nanti.</p>
-<p>Di Twitter pun demikian, kita bisa melihat tweet mana yang paling populer:</p>
-<p><img class="aligncenter size-full wp-image-2115 jetpack-lazy-image" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Engagement-di-Twitter.png?resize=885%2C585&#038;quality=100&#038;strip=all" alt="Engagement di Twitter" width="885" height="585" data-recalc-dims="1" data-lazy-srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Engagement-di-Twitter.png?w=885&amp;quality=100&amp;strip=all 885w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Engagement-di-Twitter.png?resize=300%2C198&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 885px) 100vw, 885px" data-lazy-src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Engagement-di-Twitter.png?resize=885%2C585&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2115" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Engagement-di-Twitter.png?resize=885%2C585&#038;quality=100&#038;strip=all" alt="Engagement di Twitter" width="885" height="585" srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Engagement-di-Twitter.png?w=885&amp;quality=100&amp;strip=all 885w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Engagement-di-Twitter.png?resize=300%2C198&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 885px) 100vw, 885px" data-recalc-dims="1" /></noscript><br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Pahami tujuan setiap jenis post, optimasi untuk tujuan tersebut</h3>
-<p>Ada beberapa tujuan post di social media:</p>
-<ul>
-<li>Menghibur</li>
-<li>Mendidik</li>
-<li>Menginformasikan</li>
-<li>Menyelesaikan masalah</li>
-<li>Menjawab</li>
-<li>Menjual</li>
-<li>Mendapatkan klik</li>
-</ul>
-<p>1 hal yang perlu anda ingat: SATU post maksimal punya SATU tujuan.</p>
-<p>Jangan campur antara post yang menghibur dan post yang bertujuan untuk mendapatkan penjualan. Akan kacau.</p>
-<p>Jadi ketika anda akan menulis sesuatu, pastikan dulu tujuannya apa. Gunakan bahasa, gambar/video, dan waktu yang tepat untuk tujuan tersebut.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Etika" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Tanyakan pada diri sendiri, &#8220;Apakah saya sudah layak?&#8221;</h3>
-<p>Bayangkan kalau akun yang anda kelola bukan milik anda.</p>
-<p>Apakah akan anda follow?</p>
-<p>Beberapa waktu yang lalu ada seorang pembaca yang bertanya ke saya, kenapa Facebook Page nya masih sepi &#8211; jumlah like-nya sedikit.</p>
-<p>Lalu saya intip halamannya.</p>
-<p>Ternyata isinya&#8230;tidak menarik.</p>
-<p>Hampir semua hanya berisi tentang produk yang dia jual.</p>
-<p>Foto produk, harga produk, diskon, belinya dimana, nomor telepon untuk beli, dan lain-lain.</p>
-<p>Coba anda bertemu dengan page ini&#8230;</p>
-<p>&#8230;apakah anda akan tertarik untuk mem-follow page yang isinya seperti itu?</p>
-<p>Mustahil.</p>
-<p>Kita berkunjung ke Facebook, Twitter, atau Instagram bukan untuk mendapatkan informasi produk.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Relasi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>RT/Like/Share post dari follower yang sering berinteraksi dengan anda</h3>
-<p>Ketika anda sudah punya 200+ follower, akan ada beberapa orang yang secara rutin selalu berkomentar, membagikan, atau memberikan like untuk post anda.</p>
-<p>Jangan abaikan orang-orang ini.</p>
-<p>Merekalah kunci keberhasilan anda.</p>
-<p>Maka dari itu, berikan mereka apresiasi minimal berupa retweet, like, atau share dari anda.</p>
-<p>Dengan demikian mereka akan merasa sedikit lebih senang dan akhirnya lebih aktif merekomendasikan post anda.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Etika" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Jangan menjual apapun sampai target tertentu</h3>
-<p>Kebanyakan jualan itu hal terlarang untuk akun yang ingin jadi populer.</p>
-<p>Serius. Coba anda lihat akun bisnis yang followernya di bawah 1000, kemudian sebagian besar post mereka isinya terkait produk/jasa yang dijualnya.</p>
-<p>Tidak menarik.</p>
-<p>Tentukan target jumlah follower yang lumayan tinggi dulu, misalnya 3000 (tergantung bidang industrinya). Sampai di titik ini, jangan mempromosikan apapun selain hal yang bermanfaat.</p>
-<p>Setelah lewat, baru boleh jualan.</p>
-<p>Itupun tetap harus dibatasi. Minimal perbandingannya 10:1. Setiap 10 kali membuat post baru, hanya 1 di antaranya yang boleh mengandung penjualan.<br />
-</div><br />
-<div class="mix Twitter Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Gunakan click-to-tweet untuk meningkatkan share</h3>
-<p>Coba klik salah satu link ini:</p>
-<ul>
-<li><a href="http://ctt.ec/403Sa" target="_blank">Lagi baca artikel tentang cara meningkatkan follower di social media</a></li>
-<li><a href="http://ctt.ec/do9wM" target="_blank">Ada yang mau tau cara meningkatkan follower? Coba baca di sini</a></li>
-<li><a href="http://ctt.ec/1elEI" target="_blank">Ini nih artikel buat yang pengen jadi seleb Twitter</a></li>
-</ul>
-<p>Menarik kan?</p>
-<p>Yang seperti ini sering saya lakukan di blog PanduanIM, sebagian besar share ke Twitter berasal dari link seperti itu.</p>
-<p>Meskipun ada tombol share juga di blog ini, tapi click to tweet mendapatkan lebih banyak share.</p>
-<p>Cara membuatnya:</p>
-<ol>
-<li>Kunjungi ClicktoTweet</li>
-<li>Tulis pesan yang ingin anda munculkan</li>
-<li>Sertakan URL atau/dan username anda</li>
-<li>Copy link yang diberikan</li>
-<li>Paste ke artikel atau tweet anda</li>
-</ol>
-<p></div><br />
-<div class="mix Twitter Facebook Instagram Etika" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Jangan follow terlalu banyak akun sekaligus</h3>
-<p>Rata-rata setiap kita mem-follow 5 orang, 1 orang akan mem-follow balik. Kemungkinan berhasilnya 20% untuk mendatangkan follower. Sangat tinggi.</p>
-<p>Tapi ini berbahaya kalau dilakukan terlalu sering.</p>
-<p>Apalagi menggunakan tool otomatisasi.</p>
-<p>Tidak jarang ada akun baru di Twitter dan Instagram yang langsung ditutup karena mereka terlalu sering melakukan follow-unfollow.</p>
-<p>Lakukan secara manual, dalam batas wajar&#8230;</p>
-<p>&#8230;atau jangan lakukan sama sekali.<br />
-</div><br />
-<div class="mix Twitter Relasi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Buat list di Twitter, isinya akun-akun populer yang relevan</h3>
-<p>Pengguna Twitter biasanya tidak sadar, tapi ada fitur yang namanya &#8216;list&#8217;.</p>
-<p><img class="aligncenter size-full wp-image-2117 jetpack-lazy-image" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Twitter-list.png?resize=729%2C290&#038;quality=100&#038;strip=all" alt="Twitter list" width="729" height="290" data-recalc-dims="1" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Twitter-list.png?w=729&amp;quality=100&amp;strip=all 729w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Twitter-list.png?resize=300%2C119&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 729px) 100vw, 729px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Twitter-list.png?resize=729%2C290&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2117" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Twitter-list.png?resize=729%2C290&#038;quality=100&#038;strip=all" alt="Twitter list" width="729" height="290" srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Twitter-list.png?w=729&amp;quality=100&amp;strip=all 729w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Twitter-list.png?resize=300%2C119&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 729px) 100vw, 729px" data-recalc-dims="1" /></noscript></p>
-<p>Di dalam list ini kita bisa memasukkan akun-akun orang lain, kemudian semua tweet-nya akan muncul di halaman ini.</p>
-<p>Semacam pengelompokkan tersendiri buat orang-orang tertentu.</p>
-<p>Tapi bukan itu yang penting.</p>
-<p>Ketika dimasukkan ke list, orang-orang akan mendapatkan notifikasi dari anda. Maka dari itu, kemungkinan besar mereka akan menyadari keberadaan anda.</p>
-<p>Cara ini lumayan berguna kalau anda ingin mendapatkan perhatian orang yang punya lebih banyak follower.<br />
-</div><br />
-<div class="mix Twitter Facebook Visibilitas" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Pastikan meta tag untuk social media sudah terpasang di website anda</h3>
-<p>Ini untuk anda yang punya website.</p>
-<p>Pastikan di website anda sudah terpasang semua meta tag yang tepat untuk masing-masing social media.</p>
-<p>Ini yang saya gunakan di PanduanIM:</p>
-<p><img class="aligncenter size-full wp-image-2118 jetpack-lazy-image" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Meta-tag-social.png?resize=878%2C228&#038;quality=100&#038;strip=all" alt="Meta tag social" width="878" height="228" data-recalc-dims="1" data-lazy-srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Meta-tag-social.png?w=878&amp;quality=100&amp;strip=all 878w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Meta-tag-social.png?resize=300%2C78&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 878px) 100vw, 878px" data-lazy-src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Meta-tag-social.png?resize=878%2C228&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2118" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Meta-tag-social.png?resize=878%2C228&#038;quality=100&#038;strip=all" alt="Meta tag social" width="878" height="228" srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Meta-tag-social.png?w=878&amp;quality=100&amp;strip=all 878w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Meta-tag-social.png?resize=300%2C78&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 878px) 100vw, 878px" data-recalc-dims="1" /></noscript></p>
-<p>Fungsinya adalah supaya ketika website anda di-share ke social media, data yang muncul seperti judul, gambar, dan deskripsinya benar.</p>
-<p>Selain itu, supaya nama akun anda muncul ketika di-share. Seperti ini:</p>
-<p><img class="aligncenter size-full wp-image-2119 jetpack-lazy-image" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/nama-akun-social-saat-konten-dishare.png?resize=485%2C380&#038;quality=100&#038;strip=all" alt="nama akun social saat konten dishare" width="485" height="380" data-recalc-dims="1" data-lazy-srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/nama-akun-social-saat-konten-dishare.png?w=485&amp;quality=100&amp;strip=all 485w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/nama-akun-social-saat-konten-dishare.png?resize=300%2C235&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 485px) 100vw, 485px" data-lazy-src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/nama-akun-social-saat-konten-dishare.png?resize=485%2C380&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2119" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/nama-akun-social-saat-konten-dishare.png?resize=485%2C380&#038;quality=100&#038;strip=all" alt="nama akun social saat konten dishare" width="485" height="380" srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/nama-akun-social-saat-konten-dishare.png?w=485&amp;quality=100&amp;strip=all 485w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/nama-akun-social-saat-konten-dishare.png?resize=300%2C235&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 485px) 100vw, 485px" data-recalc-dims="1" /></noscript></p>
-<p>Yang diberi tanda panah adalah link menuju Facebook Page.</p>
-<p>Dengan begitu, setiap kali konten anda di-share maka mereka bisa tahu page anda sehingga anda akan mendapatkan follower.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Buat gambar dengan mudah menggunakan tool ini</h3>
-<p>Gambar adalah jenis post yang paling banyak mendapatkan engagement dari follower.</p>
-<p>Dengan menggunakan gambar, maka jumlah share/like/retweet akan semakin besar dan semakin banyak follower yang akan anda dapatkan.</p>
-<p>Masalahnya, tidak semua orang jago desain gambar.</p>
-<p>Maka dari itu kita gunakan 2 tool gratis ini untuk bisa membuat gambar dalam hitungan detik.</p>
-<p>Pertama, <a href="https://bufferapp.com/pablo" target="_blank">Pablo</a>.</p>
-<p>Tool ini fungsinya sederhana, hanya untuk membuat tulisan di atas gambar. Tapi penggunaannya sangat mudah.</p>
-<p>Ini contoh gambar yang dibuat dengan Pablo:</p>
-<p><img class="aligncenter size-full wp-image-2120 jetpack-lazy-image" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Membuat-gambar-di-pablo.png?resize=765%2C355&#038;quality=100&#038;strip=all" alt="Membuat gambar di pablo" width="765" height="355" data-recalc-dims="1" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Membuat-gambar-di-pablo.png?w=765&amp;quality=100&amp;strip=all 765w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Membuat-gambar-di-pablo.png?resize=300%2C139&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 765px) 100vw, 765px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Membuat-gambar-di-pablo.png?resize=765%2C355&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2120" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Membuat-gambar-di-pablo.png?resize=765%2C355&#038;quality=100&#038;strip=all" alt="Membuat gambar di pablo" width="765" height="355" srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Membuat-gambar-di-pablo.png?w=765&amp;quality=100&amp;strip=all 765w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Membuat-gambar-di-pablo.png?resize=300%2C139&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 765px) 100vw, 765px" data-recalc-dims="1" /></noscript></p>
-<p>Satu lagi, yang lebih lengkap, <a href="https://www.canva.com/" target="_blank">Canva</a>.</p>
-<p>Dibandingkan dengan Pablo, tool ini lebih lengkap fungsinya karena anda bisa menggunakan icon, mengatur dimensi gambarnya, dan fitur lain.</p>
-<p>Jadi Canva lebih pas untuk membuat gambar yang lebih kompleks.</p>
-<p>Ini contoh hasilnya:</p>
-<p><img class="aligncenter size-full wp-image-2121 jetpack-lazy-image" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Gambar-di-Canva.png?resize=537%2C551&#038;quality=100&#038;strip=all" alt="Gambar di Canva" width="537" height="551" data-recalc-dims="1" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Gambar-di-Canva.png?w=537&amp;quality=100&amp;strip=all 537w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Gambar-di-Canva.png?resize=292%2C300&amp;quality=100&amp;strip=all 292w" data-lazy-sizes="(max-width: 537px) 100vw, 537px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Gambar-di-Canva.png?resize=537%2C551&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2121" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Gambar-di-Canva.png?resize=537%2C551&#038;quality=100&#038;strip=all" alt="Gambar di Canva" width="537" height="551" srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Gambar-di-Canva.png?w=537&amp;quality=100&amp;strip=all 537w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Gambar-di-Canva.png?resize=292%2C300&amp;quality=100&amp;strip=all 292w" sizes="(max-width: 537px) 100vw, 537px" data-recalc-dims="1" /></noscript></p>
-<p>Keren kan?</p>
-<p>Karena sudah ada template yang siap digunakan, tanpa mengerti desain grafis pun dalam 1 menit bisa membuat seperti ini.</p>
-<p>Oh ya, kalau anda ingin gratis, jangan pilih gambar berbayar di Canva.<br />
-</div><br />
-<div class="mix Twitter Facebook Visibilitas" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Analisa hashtag populer di Twitter, dan Facebook dengan tool ini</h3>
-<p>Kalau kita main-main di Twitter, kadang orang pikir hashtag itu buat hiasan atau lucu-lucuan.</p>
-<p>Padahal tidak.</p>
-<p>Hashtag adalah fitur yang bisa membuat post anda menjangkau jauh lebih banyak orang daripada yang tanpa hashtag.</p>
-<p>Salah satu tool favorit saya untuk tujuan ini adalah <a href="https://ritetag.com/" target="_blank">RiteTag</a>.</p>
-<p>Setelah meng-install extension-nya (untuk Chrome dan Firefox) anda bisa mengetahui seberapa populer hashtag yang akan anda gunakan dalam post di Facebook atau Tweet di Twitter.</p>
-<p>Ada juga fungsi lainnya:</p>
-<ol>
-<li>Menambahkan emoji</li>
-<li>Menambahkan gambar GIF</li>
-<li>Mencari gambar yang cocok</li>
-<li>Mencari akun populer yang relevan</li>
-</ol>
-<p></div><br />
-<div class="mix Twitter Facebook Instagram Etika" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Jadilah manusia, jangan terlalu kaku</h3>
-<p>Ini yang sering membuat saya merasa aneh dengan online marketer Indonesia.</p>
-<p>Coba deh dipikir:</p>
-<p>Enak mana, bicara dengan orang yang gayanya seperti manusia (punya kepribadian) atau orang yang bicaranya kaku seperti robot?</p>
-<p>Pasti yang pertama.</p>
-<p>Tapi yang selalu dilakukan justru yang nomor 2.</p>
-<p>Meskipun mungkin bisnis anda itu butuh formalitas tinggi, atau supaya terkesan profesional, tapi sebetulnya cara bicaranya tidak perlu terlalu kaku.</p>
-<p>Satu lagi penyebabnya mungkin karena waktu jaman sekolah kita diajari menggunakan Bahasa Indonesia yang terlalu kaku. Kalau tidak, nilainya nol.</p>
-<p>Okelah itu kan pelajaran yang dinilai oleh guru, sedangkan ini dunia nyata. Kita berbicara di dunia nyata bukan dengan bahasa yang kaku.</p>
-<p>(Kaku dan baku itu beda, baku belum tentu kaku)<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Etika" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Jangan pernah gunakan tool yang bisa menambah followers/like secara otomatis</h3>
-<p>Kalau sekarang, detik ini anda search di Google dengan kata kunci &#8220;cara menambah followers twitter&#8221; maka akan ada beberapa tool yang mengaku bisa menambah ratusan hingga ribuan follower.</p>
-<p>Jangan digunakan.</p>
-<p>Begini&#8230;</p>
-<p>Tujuan kita melakukan social media marketing bukan untuk sekedar mengejar jumlah follower.</p>
-<p>Kita mencari follower berupa manusia yang benar-benar tertarik.</p>
-<p>Percuma kalau kita punya banyak follower tapi semuanya tidak aktif atau tidak ada yang tertarik dengan konten yang kita buat.</p>
-<p>Selain itu, berbahaya.</p>
-<p>Tool seperti itu pada akhirnya akan membuat akun social media anda mem-follow secara otomatis orang-orang yang tidak dikenal.</p>
-<p>Atau membuat post secara otomatis tanpa sepengetahuan anda.</p>
-<p>Maka dari itu, jangan sentuh tool seperti itu.</p>
-<p>Lakukanlah dengan cara yang benar seperti yang dijelaskan dalam panduan ini.<br />
-</div><br />
-<div class="mix Twitter Facebook Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Gunakan plugin Social Locker</h3>
-<p>Begini cara kerjanya.</p>
-<p>Misalkan anda punya konten di website, konten ini anda kunci supaya tidak bisa dilihat.</p>
-<p>Kemudian, untuk membuka kunci tersebut pengunjung harus melakukan like/share.</p>
-<p><img class="aligncenter size-full wp-image-2124 jetpack-lazy-image" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/social-locker.png?resize=616%2C620&#038;quality=100&#038;strip=all" alt="social locker" width="616" height="620" data-recalc-dims="1" data-lazy-srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/social-locker.png?w=616&amp;quality=100&amp;strip=all 616w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/social-locker.png?resize=298%2C300&amp;quality=100&amp;strip=all 298w" data-lazy-sizes="(max-width: 616px) 100vw, 616px" data-lazy-src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/social-locker.png?resize=616%2C620&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2124" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/social-locker.png?resize=616%2C620&#038;quality=100&#038;strip=all" alt="social locker" width="616" height="620" srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/social-locker.png?w=616&amp;quality=100&amp;strip=all 616w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/social-locker.png?resize=298%2C300&amp;quality=100&amp;strip=all 298w" sizes="(max-width: 616px) 100vw, 616px" data-recalc-dims="1" /></noscript></p>
-<p>Kalau konten anda memang menarik, maka jumlah share, like, dan follower di Facebook dan Twitter akan meningkat drastis dibandingkan sebelumnya.</p>
-<p>Ini plugin yang bisa anda gunakan:</p>
-<ul>
-<li>WordPress: <a href="https://wordpress.org/plugins/social-locker/" target="_blank">One Press Social Locker</a> (Gratis)</li>
-<li>Lainnya: <a href="http://codecanyon.net/item/social-locker-for-jquery/3408941" target="_blank">Social Locker for jQuery</a> ($18)</li>
-</ul>
-<p></div><br />
-<div class="mix Twitter Facebook Instagram Relasi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Buat post yang menanyakan pendapat mereka</h3>
-<p>Post yang mengajak para follower untuk berkomentar akan mendapatkan 100% lebih banyak komentar.</p>
-<p><img class="aligncenter size-full wp-image-2125 jetpack-lazy-image" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/bertanya-pendapat-di-social-media.png?resize=652%2C327&#038;quality=100&#038;strip=all" alt="bertanya pendapat di social media" width="652" height="327" data-recalc-dims="1" data-lazy-srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/bertanya-pendapat-di-social-media.png?w=652&amp;quality=100&amp;strip=all 652w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/bertanya-pendapat-di-social-media.png?resize=300%2C150&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 652px) 100vw, 652px" data-lazy-src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/bertanya-pendapat-di-social-media.png?resize=652%2C327&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2125" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/bertanya-pendapat-di-social-media.png?resize=652%2C327&#038;quality=100&#038;strip=all" alt="bertanya pendapat di social media" width="652" height="327" srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/bertanya-pendapat-di-social-media.png?w=652&amp;quality=100&amp;strip=all 652w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/bertanya-pendapat-di-social-media.png?resize=300%2C150&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 652px) 100vw, 652px" data-recalc-dims="1" /></noscript></p>
-<p>Banyak komentar = banyak yang melihat,</p>
-<p>&#8230;sehingga follower akan bertambah.<br />
-</div><br />
-<div class="mix Instagram Strategi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Gunakan tag lokasi untuk post di Instagram</h3>
-<p>Ketika kita mengupload foto di Instagram, maka kita bisa menambahkan lokasi tempat diuploadnya foto tersebut.</p>
-<p>Kalau anda menggunakan tag lokasi ini, maka foto anda akan muncul di daftar foto-foto yang diupload dari lokasi tersebut.</p>
-<p>Dengan begitu, post anda akan lebih mudah ditemukan oleh orang lain.</p>
-<p><img class="aligncenter size-full wp-image-2126 jetpack-lazy-image" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/lokasi-foto-instagram.png?resize=300%2C533&#038;quality=100&#038;strip=all" alt="lokasi foto instagram" width="300" height="533" data-recalc-dims="1" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/lokasi-foto-instagram.png?w=300&amp;quality=100&amp;strip=all 300w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/lokasi-foto-instagram.png?resize=169%2C300&amp;quality=100&amp;strip=all 169w" data-lazy-sizes="(max-width: 300px) 100vw, 300px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/lokasi-foto-instagram.png?resize=300%2C533&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2126" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/lokasi-foto-instagram.png?resize=300%2C533&#038;quality=100&#038;strip=all" alt="lokasi foto instagram" width="300" height="533" srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/lokasi-foto-instagram.png?w=300&amp;quality=100&amp;strip=all 300w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/lokasi-foto-instagram.png?resize=169%2C300&amp;quality=100&amp;strip=all 169w" sizes="(max-width: 300px) 100vw, 300px" data-recalc-dims="1" /></noscript><br />
-</div><br />
-<div class="mix Instagram Visibilitas" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Dapatkan endorsement dari seleb Instagram</h3>
-<p>Ini cukup populer di Indonesia. Terutama bagi mereka yang jualan produk.</p>
-<p>Cara kerjanya begini:</p>
-<ol>
-<li>Cari satu (atau lebih) pengguna Instagram yang followernya banyak (bisa artis betulan, bisa juga tidak)</li>
-<li>Lihat apakah mereka menerima endorsement, biasanya ada emailnya</li>
-<li>Hubungi email tersebut</li>
-<li>Kirimkan produk anda, kalau diterima</li>
-<li>Dalam beberapa hari mereka akan mengupload foto produk anda beserta komentar</li>
-</ol>
-<p>Ini salah satu contoh sederhana yang saya temukan:</p>
-<p><img class="aligncenter size-full wp-image-1666 jetpack-lazy-image" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/06/Endorse-Instagram.jpg?resize=300%2C383&#038;quality=100&#038;strip=all" alt="Endorse Instagram" width="300" height="383" data-recalc-dims="1" data-lazy-srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/06/Endorse-Instagram.jpg?w=300&amp;quality=100&amp;strip=all 300w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/06/Endorse-Instagram.jpg?resize=235%2C300&amp;quality=100&amp;strip=all 235w" data-lazy-sizes="(max-width: 300px) 100vw, 300px" data-lazy-src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/06/Endorse-Instagram.jpg?resize=300%2C383&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-1666" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/06/Endorse-Instagram.jpg?resize=300%2C383&#038;quality=100&#038;strip=all" alt="Endorse Instagram" width="300" height="383" srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/06/Endorse-Instagram.jpg?w=300&amp;quality=100&amp;strip=all 300w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/06/Endorse-Instagram.jpg?resize=235%2C300&amp;quality=100&amp;strip=all 235w" sizes="(max-width: 300px) 100vw, 300px" data-recalc-dims="1" /></noscript></p>
-<p>Setelah itu, maka anda akan mendapatkan follower atau bahkan pembeli langsung.</p>
-<p>Kalau anda ingin belajar lebih lanjut mengenai endorsement, silahkan <a href="http://www.kaskus.co.id/thread/52f5c693c0cb17925e8b46e7/info-all-about-endorse-artis-untuk-onlineshop-agan-dan-sista/" target="_blank">ikuti thread ini di Kaskus</a>.<br />
-</div><br />
-<div class="mix Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Gunakan foto yang terang, bukan gelap di Instagram</h3>
-<p>Foto yang terang mendapatkan lebih banyak like dan komentar dibandingkan foto yang gelap:</p>
-<p><img class="aligncenter size-full wp-image-2127 jetpack-lazy-image" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-terang-instagram.png?resize=583%2C381&#038;quality=100&#038;strip=all" alt="Foto terang instagram" width="583" height="381" data-recalc-dims="1" data-lazy-srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-terang-instagram.png?w=583&amp;quality=100&amp;strip=all 583w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-terang-instagram.png?resize=300%2C196&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 583px) 100vw, 583px" data-lazy-src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-terang-instagram.png?resize=583%2C381&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2127" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-terang-instagram.png?resize=583%2C381&#038;quality=100&#038;strip=all" alt="Foto terang instagram" width="583" height="381" srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-terang-instagram.png?w=583&amp;quality=100&amp;strip=all 583w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-terang-instagram.png?resize=300%2C196&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 583px) 100vw, 583px" data-recalc-dims="1" /></noscript><br />
-</div><br />
-<div class="mix Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Gunakan foto dengan 1 warna dominan di Instagram</h3>
-<p>Foto yang menggunakan 1 warna dominan mendapatkan 17% like lebih banyak daripada foto yang berwarna-warni:</p>
-<p><img class="aligncenter size-full wp-image-2128 jetpack-lazy-image" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/satu-warna-dominan-instagram.jpg?resize=750%2C469&#038;quality=100&#038;strip=all" alt="satu warna dominan instagram" width="750" height="469" data-recalc-dims="1" data-lazy-srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/satu-warna-dominan-instagram.jpg?w=750&amp;quality=100&amp;strip=all 750w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/satu-warna-dominan-instagram.jpg?resize=300%2C188&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 750px) 100vw, 750px" data-lazy-src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/satu-warna-dominan-instagram.jpg?resize=750%2C469&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2128" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/satu-warna-dominan-instagram.jpg?resize=750%2C469&#038;quality=100&#038;strip=all" alt="satu warna dominan instagram" width="750" height="469" srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/satu-warna-dominan-instagram.jpg?w=750&amp;quality=100&amp;strip=all 750w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/satu-warna-dominan-instagram.jpg?resize=300%2C188&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 750px) 100vw, 750px" data-recalc-dims="1" /></noscript></p>
-<p>Masih tentang warna, ternyata warna biru lebih unggul daripada warna kemerahan, jumlah like-nya 24% lebih banyak:</p>
-<p><img class="aligncenter size-full wp-image-2129 jetpack-lazy-image" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/dominan-warna-biru-instagram.jpg?resize=750%2C457&#038;quality=100&#038;strip=all" alt="dominan warna biru instagram" width="750" height="457" data-recalc-dims="1" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/dominan-warna-biru-instagram.jpg?w=750&amp;quality=100&amp;strip=all 750w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/dominan-warna-biru-instagram.jpg?resize=300%2C183&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 750px) 100vw, 750px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/dominan-warna-biru-instagram.jpg?resize=750%2C457&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2129" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/dominan-warna-biru-instagram.jpg?resize=750%2C457&#038;quality=100&#038;strip=all" alt="dominan warna biru instagram" width="750" height="457" srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/dominan-warna-biru-instagram.jpg?w=750&amp;quality=100&amp;strip=all 750w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/dominan-warna-biru-instagram.jpg?resize=300%2C183&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 750px) 100vw, 750px" data-recalc-dims="1" /></noscript></p>
-<p>Ini tidak selalu berlaku untuk semua jenis foto, karena tergantung apa yang ada di foto tersebut. Tapi cukup menarik juga untuk bahan pertimbangan.<br />
-</div><br />
-<div class="mix Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Pilih foto dengan warna yang tidak mencolok di Instagram</h3>
-<p><img class="aligncenter size-full wp-image-2130 jetpack-lazy-image" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/saturasi-warna-instagram.png?resize=583%2C381&#038;quality=100&#038;strip=all" alt="saturasi warna instagram" width="583" height="381" data-recalc-dims="1" data-lazy-srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/saturasi-warna-instagram.png?w=583&amp;quality=100&amp;strip=all 583w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/saturasi-warna-instagram.png?resize=300%2C196&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 583px) 100vw, 583px" data-lazy-src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/saturasi-warna-instagram.png?resize=583%2C381&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2130" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/saturasi-warna-instagram.png?resize=583%2C381&#038;quality=100&#038;strip=all" alt="saturasi warna instagram" width="583" height="381" srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/saturasi-warna-instagram.png?w=583&amp;quality=100&amp;strip=all 583w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/saturasi-warna-instagram.png?resize=300%2C196&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 583px) 100vw, 583px" data-recalc-dims="1" /></noscript></p>
-<p>Ternyata foto-foto yang menggunakan warna terlalu mencolok mendapatkan like dan komentar lebih sedikit daripada foto yang warnanya lembut.<br />
-</div><br />
-<div class="mix Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Hindari filter bawaan Instagram, jangan pula terlalu banyak mengedit foto</h3>
-<p><img class="aligncenter size-full wp-image-2131 jetpack-lazy-image" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/foto-tanpa-filter-instagram.png?resize=586%2C475&#038;quality=100&#038;strip=all" alt="foto tanpa filter instagram" width="586" height="475" data-recalc-dims="1" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/foto-tanpa-filter-instagram.png?w=586&amp;quality=100&amp;strip=all 586w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/foto-tanpa-filter-instagram.png?resize=300%2C243&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 586px) 100vw, 586px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/foto-tanpa-filter-instagram.png?resize=586%2C475&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2131" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/foto-tanpa-filter-instagram.png?resize=586%2C475&#038;quality=100&#038;strip=all" alt="foto tanpa filter instagram" width="586" height="475" srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/foto-tanpa-filter-instagram.png?w=586&amp;quality=100&amp;strip=all 586w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/foto-tanpa-filter-instagram.png?resize=300%2C243&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 586px) 100vw, 586px" data-recalc-dims="1" /></noscript></p>
-<p>Bukan berarti foto anda tidak boleh di-edit, tapi lebih baik gunakan aplikasi yang terpisah dari filter bawaan Instagram.<br />
-</div><br />
-<div class="mix Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Gunakan foto yang kesannya &#8216;ramai&#8217; di Instagram</h3>
-<p><img class="aligncenter size-full wp-image-2132 jetpack-lazy-image" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-yang-ramai-di-instagram.png?resize=562%2C364&#038;quality=100&#038;strip=all" alt="Foto yang ramai di instagram" width="562" height="364" data-recalc-dims="1" data-lazy-srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-yang-ramai-di-instagram.png?w=562&amp;quality=100&amp;strip=all 562w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-yang-ramai-di-instagram.png?resize=300%2C194&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 562px) 100vw, 562px" data-lazy-src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-yang-ramai-di-instagram.png?resize=562%2C364&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2132" src="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-yang-ramai-di-instagram.png?resize=562%2C364&#038;quality=100&#038;strip=all" alt="Foto yang ramai di instagram" width="562" height="364" srcset="https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-yang-ramai-di-instagram.png?w=562&amp;quality=100&amp;strip=all 562w, https://i1.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-yang-ramai-di-instagram.png?resize=300%2C194&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 562px) 100vw, 562px" data-recalc-dims="1" /></noscript></p>
-<p>Foto yang kesannya ramai itu maksud saya bukan ramai karena banyak orang.</p>
-<p>Contohnya seperti ini. Yang kiri kesannya ramai, sedangkan yang kanan sepi:</p>
-<p><img class="aligncenter size-full wp-image-2133 jetpack-lazy-image" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Ramai-vs-Sepi-instagram.jpg?resize=640%2C451&#038;quality=100&#038;strip=all" alt="Ramai vs Sepi instagram" width="640" height="451" data-recalc-dims="1" data-lazy-srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Ramai-vs-Sepi-instagram.jpg?w=640&amp;quality=100&amp;strip=all 640w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Ramai-vs-Sepi-instagram.jpg?resize=300%2C211&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 640px) 100vw, 640px" data-lazy-src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Ramai-vs-Sepi-instagram.jpg?resize=640%2C451&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2133" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Ramai-vs-Sepi-instagram.jpg?resize=640%2C451&#038;quality=100&#038;strip=all" alt="Ramai vs Sepi instagram" width="640" height="451" srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Ramai-vs-Sepi-instagram.jpg?w=640&amp;quality=100&amp;strip=all 640w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/Ramai-vs-Sepi-instagram.jpg?resize=300%2C211&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 640px) 100vw, 640px" data-recalc-dims="1" /></noscript><br />
-</div><br />
-<div class="mix Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Gunakan foto yang menampilkan wajah manusia di Instagram</h3>
-<p>Foto dengan wajah manusia rata-rata mendapatkan 35% lebih banyak like dan komentar:</p>
-<p><img class="aligncenter size-full wp-image-2134 jetpack-lazy-image" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-dengan-wajah-manusia-di-instagram.png?resize=558%2C297&#038;quality=100&#038;strip=all" alt="Foto dengan wajah manusia di instagram" width="558" height="297" data-recalc-dims="1" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-dengan-wajah-manusia-di-instagram.png?w=558&amp;quality=100&amp;strip=all 558w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-dengan-wajah-manusia-di-instagram.png?resize=300%2C160&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 558px) 100vw, 558px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-dengan-wajah-manusia-di-instagram.png?resize=558%2C297&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2134" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-dengan-wajah-manusia-di-instagram.png?resize=558%2C297&#038;quality=100&#038;strip=all" alt="Foto dengan wajah manusia di instagram" width="558" height="297" srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-dengan-wajah-manusia-di-instagram.png?w=558&amp;quality=100&amp;strip=all 558w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Foto-dengan-wajah-manusia-di-instagram.png?resize=300%2C160&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 558px) 100vw, 558px" data-recalc-dims="1" /></noscript><br />
-</div><br />
-<div class="mix Instagram Konten" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Gunakan aplikasi-aplikasi ini untuk memperindah foto dari smartphone</h3>
-<p>Seperti yang sudah disebutkan sebelumnya, filter bawaan Instagram tidak terlalu efektif untuk meningkatkan jumlah like.</p>
-<p>Karena itu, gunakan aplikasi-aplikasi ini:</p>
-<ul>
-<li>VSCO: app terbaik untuk mengedit foto (<a href="https://itunes.apple.com/en/app/vsco-cam/id588013838?mt=8" target="_blank">iOS</a>/<a href="https://play.google.com/store/apps/details?id=com.vsco.cam&amp;hl=en" target="_blank">Android</a>)</li>
-<li>Over: Menambahkan teks ke gambar (<a href="https://itunes.apple.com/en/app/over/id535811906?mt=8" target="_blank">iOS</a>/<a href="https://play.google.com/store/apps/details?id=com.overllc.over&amp;hl=en" target="_blank">Android</a>)</li>
-<li>Layout: menggabungkan lebih dari 1 gambar (<a href="https://itunes.apple.com/EN/app/layout-from-instagram/id967351793?mt=8" target="_blank">iOS</a>/<a href="https://play.google.com/store/apps/details?id=com.instagram.layout&amp;hl=en" target="_blank">Android</a>)</li>
-</ul>
-<p>Masih ada banyak aplikasi yang berhubungan dengan editing foto, tapi kalau anda tidak ingin pusing silahkan gunakan 3 di atas.<br />
-</div><br />
-<div class="mix Instagram Visibilitas" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Gunakan hashtag di Instagram, tapi hati-hati</h3>
-<p>Hashtag di Instagram terbukti akan meningkatkan jumlah like dan komentar. Bahkan, semakin banyak hashtag semakin tinggi jumlah like dan komentarnya:</p>
-<p><img class="aligncenter size-full wp-image-2136 jetpack-lazy-image" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Hashtag-di-instagram.png?resize=569%2C292&#038;quality=100&#038;strip=all" alt="Hashtag di instagram" width="569" height="292" data-recalc-dims="1" data-lazy-srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Hashtag-di-instagram.png?w=569&amp;quality=100&amp;strip=all 569w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Hashtag-di-instagram.png?resize=300%2C154&amp;quality=100&amp;strip=all 300w" data-lazy-sizes="(max-width: 569px) 100vw, 569px" data-lazy-src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Hashtag-di-instagram.png?resize=569%2C292&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2136" src="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Hashtag-di-instagram.png?resize=569%2C292&#038;quality=100&#038;strip=all" alt="Hashtag di instagram" width="569" height="292" srcset="https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Hashtag-di-instagram.png?w=569&amp;quality=100&amp;strip=all 569w, https://i0.wp.com/panduanim.com/wp-content/uploads/2015/10/Hashtag-di-instagram.png?resize=300%2C154&amp;quality=100&amp;strip=all 300w" sizes="(max-width: 569px) 100vw, 569px" data-recalc-dims="1" /></noscript></p>
-<p>Tapi anda harus berhati-hati, jangan pernah gunakan hashtag yang tidak ada hubungannya.</p>
-<p>Apalagi yang seperti #like4like dan sejenisnya.</p>
-<p>Justru akan merusak reputasi anda sendiri.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Relasi Visibilitas" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Perkenalkan hashtag buatan anda sendiri</h3>
-<p>Coba lihat studi kasus yang satu ini.</p>
-<p>Birchbox, sebuah perusahaan yang menjual produk-produk kecantikan dalam satu paket yang dikirimkan secara bersamaan pada tanggal tertentu tiap bulannya.</p>
-<p>Nah, jadi tiap bulannya setiap kali produk dari Birchbox diterima oleh konsumen, mereka akan mengupload foto di social media dengan hashtag #birchbox.</p>
-<p>Lihat grafiknya:</p>
-<p><img class="aligncenter size-full wp-image-2135 jetpack-lazy-image" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/hashtag-birchbox.png?resize=1500%2C417&#038;quality=100&#038;strip=all" alt="hashtag birchbox" width="1500" height="417" data-recalc-dims="1" data-lazy-srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/hashtag-birchbox.png?w=1500&amp;quality=100&amp;strip=all 1500w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/hashtag-birchbox.png?resize=300%2C83&amp;quality=100&amp;strip=all 300w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/hashtag-birchbox.png?resize=1200%2C334&amp;quality=100&amp;strip=all 1200w" data-lazy-sizes="(max-width: 1000px) 100vw, 1000px" data-lazy-src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/hashtag-birchbox.png?resize=1500%2C417&amp;is-pending-load=1#038;quality=100&#038;strip=all" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img class="aligncenter size-full wp-image-2135" src="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/hashtag-birchbox.png?resize=1500%2C417&#038;quality=100&#038;strip=all" alt="hashtag birchbox" width="1500" height="417" srcset="https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/hashtag-birchbox.png?w=1500&amp;quality=100&amp;strip=all 1500w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/hashtag-birchbox.png?resize=300%2C83&amp;quality=100&amp;strip=all 300w, https://i2.wp.com/panduanim.com/wp-content/uploads/2015/10/hashtag-birchbox.png?resize=1200%2C334&amp;quality=100&amp;strip=all 1200w" sizes="(max-width: 1000px) 100vw, 1000px" data-recalc-dims="1" /></noscript></p>
-<p>Setiap tanggal tertentu ada lonjakan mention untuk hashtag tersebut.</p>
-<p>Inilah mengapa anda sebaiknya memperkenalkan hashtag buatan anda sendiri kepada para follower.<br />
-</div><br />
-<div class="mix Twitter Facebook Instagram Relasi" ></p>
-<div class="straight-dashed-line"></div>
-<h3>Post ulang foto-foto yang di-post oleh follower anda</h3>
-<p>Ini berlaku di semua social media, termasuk Facebook, Twitter, dan Instagram.</p>
-<p>65% dari orang yang aktif di social media menyatakan bahwa mereka merasa bangga apabila brand yang mereka follow me-mention nama mereka.</p>
-<p>Karena itu, buatlah mereka bangga.</p>
-<p>Setiap kali ada yang menerbitkan post berisi foto tentang anda atau bisnis anda, post ulang di akun anda sendiri dan sertakan tag/mention ke akun mereka.</p>
-<p>Dengan demikian, akan muncul orang-orang lain yang juga akan ikut mengupload foto-foto yang berisi produk anda.<br />
-</div><br />
 </div>
-<p><a class="comment-reply-link" href="#filter-buttons">↑ Kembali ke filter</a></p>
-<div class="one-half first"><a class="kotak-daftar-isi" href="http://panduanim.com/social-media-marketing/">1. Menyusun Strategi</a><a class="kotak-daftar-isi" href="http://panduanim.com/kesalahan-social-media-marketing/">2. Kesalahan Umum</a></div>
-<div class="one-half"><a class="kotak-daftar-isi" href="http://panduanim.com/menambah-followers/">3. Meningkatkan Follower</a><a class="kotak-daftar-isi" href="http://panduanim.com/facebook-marketing/">4. Facebook Marketing</a></div>
-<div class="clear-line"></div>
-<span id="tve_leads_end_content" style="display: block; visibility: hidden; border: 1px solid transparent;"></span></div><footer class="entry-footer"></footer></article><div class="entry-comments" id="comments"><h3>Komentar Pembaca</h3> <a class="tanya-komentar" href="#reply-title">Ingin berkomentar?</a><ol class="comment-list">
-	<li class="comment even thread-even depth-1" id="comment-5802">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://2.gravatar.com/avatar/e6ba2e98ed25e0954364557022e3051a?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://2.gravatar.com/avatar/e6ba2e98ed25e0954364557022e3051a?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://2.gravatar.com/avatar/e6ba2e98ed25e0954364557022e3051a?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://2.gravatar.com/avatar/e6ba2e98ed25e0954364557022e3051a?s=48&#038;d=identicon&#038;r=g' srcset='http://2.gravatar.com/avatar/e6ba2e98ed25e0954364557022e3051a?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name"><a href="http://danuadji.com" class="comment-author-link" rel="external nofollow" itemprop="url">danu adji</a></span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-10-22T19:46:20+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-5802" class="comment-time-link" itemprop="url">22 Oktober 2015 at 7:46 pm</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>Walaupun artikelnya belum sepenuhnya jadi, tapi saya sudah mendapatkan poin poin yang saya inginkan, Apalagi saya dapet tambahan tool hastag dan pengedit foto gratis. makasih mas. Di tunggu kelengkapannya mas. mau ku share ke tim hehehe</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-5802' onclick='return addComment.moveForm( "comment-5802", "5802", "respond", "2097" )' aria-label='Balasan untuk danu adji'>Balas</a></div>
-		
-	</article>
-	<ul class="children">
-
-	<li class="comment odd alt depth-2" id="comment-21031">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://0.gravatar.com/avatar/9d2864d34567a2fe0173934ae8c3f79a?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://0.gravatar.com/avatar/9d2864d34567a2fe0173934ae8c3f79a?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://0.gravatar.com/avatar/9d2864d34567a2fe0173934ae8c3f79a?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://0.gravatar.com/avatar/9d2864d34567a2fe0173934ae8c3f79a?s=48&#038;d=identicon&#038;r=g' srcset='http://0.gravatar.com/avatar/9d2864d34567a2fe0173934ae8c3f79a?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name">opunk</span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2016-02-28T02:00:05+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-21031" class="comment-time-link" itemprop="url">28 Februari 2016 at 2:00 am</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>tulisan yg keren dan bermanfaat sekali. sebagai yg awam medsos sy belajar banyak&#8230;smoga tetap mau berbagi. mksh</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-21031' onclick='return addComment.moveForm( "comment-21031", "21031", "respond", "2097" )' aria-label='Balasan untuk opunk'>Balas</a></div>
-		
-	</article>
-	</li><!-- #comment-## -->
-</ul><!-- .children -->
-</li><!-- #comment-## -->
-
-	<li class="comment even thread-odd thread-alt depth-1" id="comment-6663">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://2.gravatar.com/avatar/8a4655751886e8169b7cd1854d4d821e?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://2.gravatar.com/avatar/8a4655751886e8169b7cd1854d4d821e?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://2.gravatar.com/avatar/8a4655751886e8169b7cd1854d4d821e?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://2.gravatar.com/avatar/8a4655751886e8169b7cd1854d4d821e?s=48&#038;d=identicon&#038;r=g' srcset='http://2.gravatar.com/avatar/8a4655751886e8169b7cd1854d4d821e?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name"><a href="http://videoproperti.com" class="comment-author-link" rel="external nofollow" itemprop="url">andri firmansyah</a></span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-10-31T01:22:00+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-6663" class="comment-time-link" itemprop="url">31 Oktober 2015 at 1:22 am</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>Slam Dunk!!<br />
-Ini artikel super power..<br />
-Di tempat lain, ilmu seperti ini harus bayar. Disini dibagi gratis sama pak Darmawan.<br />
-Tinggal kita mau praktek nggak. Soalnya ilmu nya udah di jelaskan detail di artikel ini.<br />
-Thq Master!</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-6663' onclick='return addComment.moveForm( "comment-6663", "6663", "respond", "2097" )' aria-label='Balasan untuk andri firmansyah'>Balas</a></div>
-		
-	</article>
-	</li><!-- #comment-## -->
-
-	<li class="comment odd alt thread-even depth-1" id="comment-6677">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://1.gravatar.com/avatar/45d3968868b13ad689176cefc32045b3?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://1.gravatar.com/avatar/45d3968868b13ad689176cefc32045b3?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://1.gravatar.com/avatar/45d3968868b13ad689176cefc32045b3?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://1.gravatar.com/avatar/45d3968868b13ad689176cefc32045b3?s=48&#038;d=identicon&#038;r=g' srcset='http://1.gravatar.com/avatar/45d3968868b13ad689176cefc32045b3?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name"><a href="http://www.ehpedia.com/" class="comment-author-link" rel="external nofollow" itemprop="url">Belajar bisnis online</a></span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-10-31T03:22:12+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-6677" class="comment-time-link" itemprop="url">31 Oktober 2015 at 3:22 am</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>Tips nya keren, meski setengah dari semua tips diatas memang sudah saya ketahui, namun pada prakteknya memang belum saya lakukan karena rasa malas dan permasalahan waktu.<br />
-Btw trims lumayan ada canva, tool edit gambar gratisnya.</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-6677' onclick='return addComment.moveForm( "comment-6677", "6677", "respond", "2097" )' aria-label='Balasan untuk Belajar bisnis online'>Balas</a></div>
-		
-	</article>
-	</li><!-- #comment-## -->
-
-	<li class="comment even thread-odd thread-alt depth-1" id="comment-7002">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://2.gravatar.com/avatar/24ae4520569a5badc3b5d3c86a0d4e7f?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://2.gravatar.com/avatar/24ae4520569a5badc3b5d3c86a0d4e7f?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://2.gravatar.com/avatar/24ae4520569a5badc3b5d3c86a0d4e7f?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://2.gravatar.com/avatar/24ae4520569a5badc3b5d3c86a0d4e7f?s=48&#038;d=identicon&#038;r=g' srcset='http://2.gravatar.com/avatar/24ae4520569a5badc3b5d3c86a0d4e7f?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name"><a href="http://bacaanku.com" class="comment-author-link" rel="external nofollow" itemprop="url">jalaluddinalhaq</a></span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-11-02T16:00:43+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-7002" class="comment-time-link" itemprop="url">2 November 2015 at 4:00 pm</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>saya baru 1 bulan mencoba bermain website. cuma 2 website SEO yang saya jadikan acuan. salah satunya adalah panduan IM dari mas darmawan ini karena cara penyampaiannya asik buat di ikuti.</p>
-<p>masih banyak kebingungan untuk optimasi SEO, khususnya tentang social network ini. khususnya dalam hal meta tag social network.</p>
-<p>entah kenapa setiap saya coba share artikel dari website saya, source fanspage saya tidak terkoneksi, hanya namesite blog saya saja. mungkin mas darmawan mau sedikit membantu saya untuk koreksi relasi SN website saya :D.</p>
-<p>link meta tag web saya &#8220;http://goo.gl/6fEUQU&#8221;<br />
-misal komennya kurang bagus, sangant membantu kalau bisadijawab melalui email 😀</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-7002' onclick='return addComment.moveForm( "comment-7002", "7002", "respond", "2097" )' aria-label='Balasan untuk jalaluddinalhaq'>Balas</a></div>
-		
-	</article>
-	<ul class="children">
-
-	<li class="comment byuser comment-author-darmawan bypostauthor odd alt depth-2" id="comment-7328">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=48&#038;d=identicon&#038;r=g' srcset='http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name"><a href="http://panduanim.com" class="comment-author-link" rel="external nofollow" itemprop="url">Darmawan</a></span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-11-02T21:02:43+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-7328" class="comment-time-link" itemprop="url">2 November 2015 at 9:02 pm</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>Meta tag untuk article:author belum ada, coba ditambahkan lalu diarahkan ke Facebook Page</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-7328' onclick='return addComment.moveForm( "comment-7328", "7328", "respond", "2097" )' aria-label='Balasan untuk Darmawan'>Balas</a></div>
-		
-	</article>
-	</li><!-- #comment-## -->
-</ul><!-- .children -->
-</li><!-- #comment-## -->
-
-	<li class="comment even thread-even depth-1" id="comment-7245">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://2.gravatar.com/avatar/bd00eae957cfe9e65da170474f7cd519?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://2.gravatar.com/avatar/bd00eae957cfe9e65da170474f7cd519?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://2.gravatar.com/avatar/bd00eae957cfe9e65da170474f7cd519?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://2.gravatar.com/avatar/bd00eae957cfe9e65da170474f7cd519?s=48&#038;d=identicon&#038;r=g' srcset='http://2.gravatar.com/avatar/bd00eae957cfe9e65da170474f7cd519?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name"><a href="http://ositmen.com/" class="comment-author-link" rel="external nofollow" itemprop="url">Sam</a></span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-11-02T19:54:08+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-7245" class="comment-time-link" itemprop="url">2 November 2015 at 7:54 pm</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>Luar biasa ini website beserta kontennya, sepakat saya! Kalo di seminarkan, hal ginian harganya jutaan bahkan puluhan juta. </p>
-<p>Kalo dipraktekin, sabar, gak ngeluh, dan konsisten untuk improve, pasti ngefek!</p>
-<p>Makasih Mas Darmawan.</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-7245' onclick='return addComment.moveForm( "comment-7245", "7245", "respond", "2097" )' aria-label='Balasan untuk Sam'>Balas</a></div>
-		
-	</article>
-	</li><!-- #comment-## -->
-
-	<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-11199">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://1.gravatar.com/avatar/782d838e9a9ef7a265c28d00967945b8?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://1.gravatar.com/avatar/782d838e9a9ef7a265c28d00967945b8?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://1.gravatar.com/avatar/782d838e9a9ef7a265c28d00967945b8?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://1.gravatar.com/avatar/782d838e9a9ef7a265c28d00967945b8?s=48&#038;d=identicon&#038;r=g' srcset='http://1.gravatar.com/avatar/782d838e9a9ef7a265c28d00967945b8?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name"><a href="http://www.jasawebmedan.web.id" class="comment-author-link" rel="external nofollow" itemprop="url">jasa web medan</a></span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-11-25T12:40:34+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-11199" class="comment-time-link" itemprop="url">25 November 2015 at 12:40 pm</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>Dari oktober 2014 hingga sekarang nov 2015 saya sering cari panduan buat web hingga seo , sosmed dan pemasaran internet ..</p>
-<p>yg saya herankan kq di artikel panduan im ini ilmu nya lengkap puanjaaaanggg serta bermanfaat gratis lagi tinggal mau atau tidak mempraktekkan nya </p>
-<p>dr awal saya tau internet bisa menghasilkan uang lalu saya sering beli ebook berbayar</p>
-<p> namun jika dibanding dengan panduan im malah ilmu nya melebihi ebook berbayar.. mantap dah pokoke maknyosssss</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-11199' onclick='return addComment.moveForm( "comment-11199", "11199", "respond", "2097" )' aria-label='Balasan untuk jasa web medan'>Balas</a></div>
-		
-	</article>
-	</li><!-- #comment-## -->
-
-	<li class="comment even thread-even depth-1" id="comment-11340">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://0.gravatar.com/avatar/9b99037219d9eacb259b34425b7ddb8d?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://0.gravatar.com/avatar/9b99037219d9eacb259b34425b7ddb8d?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://0.gravatar.com/avatar/9b99037219d9eacb259b34425b7ddb8d?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://0.gravatar.com/avatar/9b99037219d9eacb259b34425b7ddb8d?s=48&#038;d=identicon&#038;r=g' srcset='http://0.gravatar.com/avatar/9b99037219d9eacb259b34425b7ddb8d?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name"><a href="http://alifandofla.com" class="comment-author-link" rel="external nofollow" itemprop="url">Alifan</a></span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-11-27T16:28:08+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-11340" class="comment-time-link" itemprop="url">27 November 2015 at 4:28 pm</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>kereennn kebetulan lagi belajar buat ngembangin sosmed<br />
-Ane masih punya cara untuk Facebook yg belum di share &gt; untuk awal &gt;</p>
-<p>membuat akun fb personal yang &#8220;baik&#8221; lalu nge add temen orang-orang yang punya minat di situ, misal nih Internet marketing &gt; add friend temen2 Internet marketing dari grup atau fp lain, akun fb personal ini harus hidup, nah setelah dapat 3k teman bisa buat pelan2 nge up fans page</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-11340' onclick='return addComment.moveForm( "comment-11340", "11340", "respond", "2097" )' aria-label='Balasan untuk Alifan'>Balas</a></div>
-		
-	</article>
-	</li><!-- #comment-## -->
-
-	<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-11693">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://1.gravatar.com/avatar/1b0c64dc230076800d105b77a1a850d2?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://1.gravatar.com/avatar/1b0c64dc230076800d105b77a1a850d2?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://1.gravatar.com/avatar/1b0c64dc230076800d105b77a1a850d2?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://1.gravatar.com/avatar/1b0c64dc230076800d105b77a1a850d2?s=48&#038;d=identicon&#038;r=g' srcset='http://1.gravatar.com/avatar/1b0c64dc230076800d105b77a1a850d2?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name"><a href="https://yaumilakbar.com" class="comment-author-link" rel="external nofollow" itemprop="url">Yaumil Akbar</a></span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-12-04T16:45:51+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-11693" class="comment-time-link" itemprop="url">4 Desember 2015 at 4:45 pm</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>Belum lengkap aja udah awesome gini hihi.</p>
-<p>Oia ma saya kan pake Ghost ni, beda sama WordPress ada pluginnya buat bikin meta tag twitter.</p>
-<p>Nah kalo di Ghost gimana caranya ya, emang ada sih otomatis tapi gak ada meta tag buat akunnya mas, kalo wordpress kan lengkap bisa masukkin akun pengguna.</p>
-<p>Mohon maaf kalo pertanyaan ini salah tempat 😀</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-11693' onclick='return addComment.moveForm( "comment-11693", "11693", "respond", "2097" )' aria-label='Balasan untuk Yaumil Akbar'>Balas</a></div>
-		
-	</article>
-	<ul class="children">
-
-	<li class="comment byuser comment-author-darmawan bypostauthor even depth-2" id="comment-11708">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=48&#038;d=identicon&#038;r=g' srcset='http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name"><a href="http://panduanim.com" class="comment-author-link" rel="external nofollow" itemprop="url">Darmawan</a></span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-12-05T06:39:45+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-11708" class="comment-time-link" itemprop="url">5 Desember 2015 at 6:39 am</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>Ghost itu kan open source, kalau masnya ngerti koding, bikin aja sendiri.</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-11708' onclick='return addComment.moveForm( "comment-11708", "11708", "respond", "2097" )' aria-label='Balasan untuk Darmawan'>Balas</a></div>
-		
-	</article>
-	</li><!-- #comment-## -->
-</ul><!-- .children -->
-</li><!-- #comment-## -->
-
-	<li class="comment odd alt thread-even depth-1" id="comment-13886">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://1.gravatar.com/avatar/aa9394924317a1584916fd47bab8da14?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://1.gravatar.com/avatar/aa9394924317a1584916fd47bab8da14?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://1.gravatar.com/avatar/aa9394924317a1584916fd47bab8da14?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://1.gravatar.com/avatar/aa9394924317a1584916fd47bab8da14?s=48&#038;d=identicon&#038;r=g' srcset='http://1.gravatar.com/avatar/aa9394924317a1584916fd47bab8da14?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name"><a href="http://www.jftkaroseri.com" class="comment-author-link" rel="external nofollow" itemprop="url">Daniel</a></span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-12-24T08:35:30+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-13886" class="comment-time-link" itemprop="url">24 Desember 2015 at 8:35 am</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>Mas Darmawan, artikelnya luar biasa sekali.</p>
-<p>Pasti banyak di bookmark dan di link artikel Mas Darmawan yang satu ini.</p>
-<p>Sangat panjang dan lengkap. Lihat artikel ini, jadi ingat salah satu artikel top dari Backlinko.</p>
-<p>Dan mas satu hal lagi&#8230;</p>
-<p>Saya suka sekali dengan fitur content filternya. Boleh tau mas pluginnya ini &#8220;custom&#8221; atau &#8220;dijual ke publik&#8221;?</p>
-<p>Kalau dijual ke publik boleh minta linknya mas?</p>
-<p>Terimakasih Banyak 🙂</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-13886' onclick='return addComment.moveForm( "comment-13886", "13886", "respond", "2097" )' aria-label='Balasan untuk Daniel'>Balas</a></div>
-		
-	</article>
-	<ul class="children">
-
-	<li class="comment byuser comment-author-darmawan bypostauthor even depth-2" id="comment-14612">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=48&#038;d=identicon&#038;r=g' srcset='http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name"><a href="http://panduanim.com" class="comment-author-link" rel="external nofollow" itemprop="url">Darmawan</a></span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-12-28T06:49:05+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-14612" class="comment-time-link" itemprop="url">28 Desember 2015 at 6:49 am</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>Custom, tapi nanti kalau banyak yang mau mungkin bisa saya jual ke publik</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-14612' onclick='return addComment.moveForm( "comment-14612", "14612", "respond", "2097" )' aria-label='Balasan untuk Darmawan'>Balas</a></div>
-		
-	</article>
-	</li><!-- #comment-## -->
-</ul><!-- .children -->
-</li><!-- #comment-## -->
-
-	<li class="comment odd alt thread-odd thread-alt depth-1" id="comment-13995">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://2.gravatar.com/avatar/85f617f93bfbc05efbfb3f9139d05e9f?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://2.gravatar.com/avatar/85f617f93bfbc05efbfb3f9139d05e9f?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://2.gravatar.com/avatar/85f617f93bfbc05efbfb3f9139d05e9f?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://2.gravatar.com/avatar/85f617f93bfbc05efbfb3f9139d05e9f?s=48&#038;d=identicon&#038;r=g' srcset='http://2.gravatar.com/avatar/85f617f93bfbc05efbfb3f9139d05e9f?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name">Afif</span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-12-24T23:26:20+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-13995" class="comment-time-link" itemprop="url">24 Desember 2015 at 11:26 pm</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>Mas Darmawan, </p>
-<p>Beberapa sudah saya praktekkan di FP, semisal memposting non-jualan, motivasi, link, konten bergambar, interaktif, fast respons, informasi, tips, CTA, kompetisi, pertanyaan, dan sekedar sapaan. </p>
-<p>Sudah praktek bikin &#8216;Note&#8217; juga yang isinya justru bukan untuk jualan (dilakukan setelah tahu kalau Note menurut tulisan mas Darmawan di topik FB marketing bisa dimanfaatkan untuk optimasi di FP). </p>
-<p>Hasilnya? Reach = 0, engagement = 0, like = 0. OMG 🙂</p>
-<p>Bahkan sampai sekarang belum bisa mengakses &#8216;Insight&#8217; (kebayang jumlah Like-nya masih berapa). </p>
-<p>Jadi, trial error apa (lagi) nih dengan kenyataan yang begitu? </p>
-<p>Oya lupa, baik mana antara ngepost di Note dengan di Wall? Makasih banyak.</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-13995' onclick='return addComment.moveForm( "comment-13995", "13995", "respond", "2097" )' aria-label='Balasan untuk Afif'>Balas</a></div>
-		
-	</article>
-	<ul class="children">
-
-	<li class="comment byuser comment-author-darmawan bypostauthor even depth-2" id="comment-14610">
-	<article itemprop="comment" itemscope itemtype="https://schema.org/Comment">
-
-		
-		<header class="comment-header">
-			<p class="comment-author" itemprop="author" itemscope itemtype="https://schema.org/Person">
-				<img alt src="https://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=48&#038;d=identicon&#038;r=g" class="avatar avatar-48 photo jetpack-lazy-image" height="48" width="48" data-lazy-srcset="http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=96&#038;d=identicon&#038;r=g 2x" data-lazy-src="http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=48&amp;is-pending-load=1#038;d=identicon&#038;r=g" srcset="data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7"><noscript><img alt='' src='http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=48&#038;d=identicon&#038;r=g' srcset='http://2.gravatar.com/avatar/b6bb33c097b44ef3e8abf05e415dfe18?s=96&#038;d=identicon&#038;r=g 2x' class='avatar avatar-48 photo' height='48' width='48' /></noscript><span itemprop="name"><a href="http://panduanim.com" class="comment-author-link" rel="external nofollow" itemprop="url">Darmawan</a></span> 			</p>
-
-			<p class="comment-meta"><time class="comment-time" datetime="2015-12-28T06:46:25+00:00" itemprop="datePublished"><a href="http://panduanim.com/menambah-followers/#comment-14610" class="comment-time-link" itemprop="url">28 Desember 2015 at 6:46 am</a></time></p>		</header>
-
-		<div class="comment-content" itemprop="text">
-			
-			<p>Kalo followernya sekarang 0, mau posting 100x di page sendiri pun bakal tetep 0. Promosikan ke luar, jangan cuma di dalam.</p>
-		</div>
-
-		<div class="comment-reply"><a rel='nofollow' class='comment-reply-link' href='#comment-14610' onclick='return addComment.moveForm( "comment-14610", "14610", "respond", "2097" )' aria-label='Balasan untuk Darmawan'>Balas</a></div>
-		
-	</article>
-	</li><!-- #comment-## -->
-</ul><!-- .children -->
-</li><!-- #comment-## -->
-</ol></div>	<div id="respond" class="comment-respond">
-		<h3 id="reply-title" class="comment-reply-title">Ada pertanyaan atau komentar? <small><a rel="nofollow" id="cancel-comment-reply-link" href="/menambah-followers/#respond" style="display:none;">Batalkan balasan</a></small></h3>			<form action="http://panduanim.com/wp-comments-post.php" method="post" id="commentform" class="comment-form" novalidate>
-				<p class="comment-form-comment"><label for="comment">Komentar</label> <textarea id="comment" name="comment" cols="45" rows="8" maxlength="65525" required="required"></textarea></p><input name="wpml_language_code" type="hidden" value="id" /><p class="comment-form-author"><label for="author">Nama <span class="required">*</span></label> <input id="author" name="author" type="text" value="" size="30" maxlength="245" required='required' /></p>
-<p class="comment-form-email"><label for="email">Email <span class="required">*</span></label> <input id="email" name="email" type="email" value="" size="30" maxlength="100" aria-describedby="email-notes" required='required' /></p>
-<p class="form-submit"><input name="submit" type="submit" id="submit" class="submit" value="Kirim Komentar" /> <input type='hidden' name='comment_post_ID' value='2097' id='comment_post_ID' />
-<input type='hidden' name='comment_parent' id='comment_parent' value='0' />
-</p><p style="display: none;"><input type="hidden" id="akismet_comment_nonce" name="akismet_comment_nonce" value="752cf6540f" /></p><input type="hidden" id="ak_js" name="ak_js" value="243"/><textarea name="ak_hp_textarea" cols="45" rows="8" maxlength="100" style="display: none !important;"></textarea>			</form>
-			</div><!-- #respond -->
-	</main></div></div><footer class="site-footer" itemscope itemtype="https://schema.org/WPFooter"><div class="wrap"><p>Dibuat dengan <span class="dashicons dashicons-heart"></span> Panduan IM &#x000A9;&nbsp;2021. <a href="http://panduanim.com/kontak/">Hubungi saya</a></p></div></footer></div>		<script type="text/javascript">
-			jQuery(document).ready(function () {
-				jQuery(".widget_pim_modul_index").theiaStickySidebar({"containerSelector":".content","additionalMarginTop":"","additionalMarginBottom":"-1","updateSidebarHeight":false,"minWidth":"960","sidebarBehavior":"modern"});
-			});
-		</script>
-	<script async>(function(s,u,m,o,j,v){j=u.createElement(m);v=u.getElementsByTagName(m)[0];j.async=1;j.src=o;j.dataset.sumoSiteId='e0ffb1bbc63baaa5076649f1AHa9ZXRmGcuj4pN1qae25JgSsVtGA4ekRNQCea33';j.dataset.sumoPlatform='wordpress';v.parentNode.insertBefore(j,v)})(window,document,'script','//load.sumo.com/');</script>    <script type="application/javascript">
-      var ajaxurl = "http://panduanim.com/wp-admin/admin-ajax.php";
-
-      function sumo_add_woocommerce_coupon(code) {
-        jQuery.post(ajaxurl, {
-          action: 'sumo_add_woocommerce_coupon',
-          code: code,
-        });
-      }
-
-      function sumo_remove_woocommerce_coupon(code) {
-        jQuery.post(ajaxurl, {
-          action: 'sumo_remove_woocommerce_coupon',
-          code: code,
-        });
-      }
-
-      function sumo_get_woocommerce_cart_subtotal(callback) {
-        jQuery.ajax({
-          method: 'POST',
-          url: ajaxurl,
-          dataType: 'html',
-          data: {
-            action: 'sumo_get_woocommerce_cart_subtotal',
-          },
-          success: function(subtotal) {
-            return callback(null, subtotal);
-          },
-          error: function(err) {
-            return callback(err, 0);
+<div class="seamless-ads" data-component="desktop:seamless-ads" data-component-name="desktop:seamless-ads"><a href="javascript:void(0)" class="seamless-ads__link" target="_blank"><div class="seamless-ads__container"><div class="seamless-ads__fixed-container"><div class="seamless-ads__wrapper"></div></div></div></a></div>
+<p>Banyaknya pengguna Instagram, wajar platform media sosial ini tak hanya dijadikan sebagai tempat mengekspresikan diri, tetapi juga wadah untuk berbisnis.</p>
+<p><strong><a href="https://www.bola.com/tag/instagram">Instagram</a></strong> kerap dianggap sebagai media promosi yang efektif untuk menawarkan produk usaha. Namun, untuk membuat akun Instagram yang dikenal banyak orang tentu membutuhkan perjuangan.</p>
+<p>Satu di antara faktor penting agar akun Instagram dikenal luas yaitu jumlah follower. Dengan banyaknya follower yang mengikuti, otomatis konten-konten yang dibuat pun banyak dilihat.</p>
+<p>Adanya follower yang banyak dan aktif berkomentar bisa membuat akun Instagram seseorang mempunyai <em>engagement</em> tinggi, yang tentunya bisa melancarkan bisnis. Lalu bagaimana cara menambah followers Instagram secara gratis?</p>
+<p>Berikut ini rangkuman tentang cara memperbanyak followers <strong><a href="https://www.bola.com/tag/instagram">Instagram</a> </strong>secara gratis, seperti dilansir dari <em>thelastsurvivors.org</em>, Selasa (27/7/2021).</p></div><div id="gpt-ad-bola-sc-1" class="article-ad"></div><div id="div-revive-ad-bola-sc" class="article-ad" data-component-name="ads:revive-ads"><!-- Revive Adserver Asynchronous JS Tag - Generated with Revive Adserver v5.0.5 www.bola.com - Showcase --><ins data-revive-zoneid="28" data-revive-id="826a5a6d8734276706a6e7f9fac6fabb" data-revive-zonename="www.bola.com - Showcase"></ins></div><div class="article-content-body__item-break" data-component-name="desktop:read-page:article-content-body:section:pageend"><div class="article-content-body__item-break-index">2 dari 8 halaman</div><hr class="article-content-body__item-break-line"></div></div><div class="article-content-body__item-page article-content-body__item-page_hidden" data-page="2" data-title="Follow Semua Orang di Instagram"><h2 class="article-content-body__item-title" data-component-name="desktop:read-page:article-content-body:section:pagetitle">Follow Semua Orang di Instagram</h2><div class="article-content-body__item-media"><figure class="read-page--photo-gallery--item" id="gallery-image-3060827" data-photo-gallery-page="2" data-image="https://cdn1-production-images-kly.akamaized.net/1vcpRY3OkWgF50WseV17nKn6NEU=/640x640/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3060827/original/091703500_1582693083-ben-kolde-_zqJaEyo6I4-unsplash.jpg" data-description="Ilustrasi Instagram. /Photo by Ben Kolde on Unsplash" data-title="Ilustrasi Instagram" data-share-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat?photo=3060827" data-photo-id="?photo=3060827" data-copy-link-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat" data-component="desktop:read-page:photo-gallery:item" data-component-name="desktop:read-page:photo-gallery:item"><div class="read-page--photo-gallery--item__content js-gallery-content"><a href="#" class="read-page--photo-gallery--item__link"><picture class="read-page--photo-gallery--item__picture"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="640" height="640" data-src="https://cdn1-production-images-kly.akamaized.net/1vcpRY3OkWgF50WseV17nKn6NEU=/640x640/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3060827/original/091703500_1582693083-ben-kolde-_zqJaEyo6I4-unsplash.jpg" data-width="640" data-height="640" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/qGU7DF820MXLRR2Bs47CPdS4KOo=/1280x1280/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3060827/original/091703500_1582693083-ben-kolde-_zqJaEyo6I4-unsplash.jpg" alt="Ilustrasi Instagram" class="js-lazyload read-page--photo-gallery--item__picture-lazyload" data-template-var="image"></picture><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_zoom i-gallery-zoom js-icon-zoom"></span><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_plus i-gallery-plus js-icon-plus"></span></a><div class="read-page--photo-gallery--item__social-share js-social-share"><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://www.facebook.com/sharer/sharer.php?u=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_facebook i-gallery-facebook"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://twitter.com/intent/tweet?text=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_twitter i-gallery-twitter"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://plus.google.com/share?url=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_google-plus i-gallery-gplus"></span></a><a class="read-page--photo-gallery--item__share-button" href="mailto:?to=&amp;subject=%5BBOLA%5D%20Cara%20Memperbanyak%20Follower%20Instagram%20Secara%20Gratis%2C%20Mudah%2C%20dan%20Cepat&amp;body=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_email i-gallery-email"></span></a><a class="read-page--photo-gallery--item__share-button js-copy-link" href="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_copy-link i-gallery-copy-link"></span></a></div></div><figcaption class="read-page--photo-gallery--item__caption"><span>Ilustrasi Instagram. /Photo by Ben Kolde on Unsplash</span></figcaption></figure></div><div class="article-content-body__item-content" data-component-name="desktop:read-page:article-content-body:section:text"><p>Untuk menambah followers instagram, follow semua pengguna instagram, terutama orang-orang kamu kenal. Dengan cara tersebut orang-orang yang kamu kenal akan mengikuti balik maupun diikuti oleh orang lain dari orang kamu follow.</p></div><div id="gpt-ad-bola-sc-2" class="article-ad"></div><div class="article-content-body__item-break" data-component-name="desktop:read-page:article-content-body:section:pageend"><div class="article-content-body__item-break-index">3 dari 8 halaman</div><hr class="article-content-body__item-break-line"></div></div><div class="article-content-body__item-page article-content-body__item-page_hidden" data-page="3" data-title="Teknik Follow-Unfollow"><h2 class="article-content-body__item-title" data-component-name="desktop:read-page:article-content-body:section:pagetitle">Teknik Follow-Unfollow</h2><div class="article-content-body__item-media"><figure class="read-page--photo-gallery--item" id="gallery-image-3448206" data-photo-gallery-page="3" data-image="https://cdn1-production-images-kly.akamaized.net/lZRLzLRfyilyNIrcnQqRSqw3s3c=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3448206/original/082427300_1620176587-jakob-owens-WUmb_eBrpjs-unsplash_Fotor.jpg" data-description="Ilustrasi Instagram, main media sosial Instagram. (Photo by Jakob Owens on Unsplash)" data-title="Ilustrasi Instagram, main media sosial Instagram" data-share-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat?photo=3448206" data-photo-id="?photo=3448206" data-copy-link-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat" data-component="desktop:read-page:photo-gallery:item" data-component-name="desktop:read-page:photo-gallery:item"><div class="read-page--photo-gallery--item__content js-gallery-content"><a href="#" class="read-page--photo-gallery--item__link"><picture class="read-page--photo-gallery--item__picture"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="640" height="360" data-src="https://cdn1-production-images-kly.akamaized.net/lZRLzLRfyilyNIrcnQqRSqw3s3c=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3448206/original/082427300_1620176587-jakob-owens-WUmb_eBrpjs-unsplash_Fotor.jpg" data-width="640" data-height="360" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/0JB7C5kAw64M61lbHn9zu8t5wG0=/1280x720/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3448206/original/082427300_1620176587-jakob-owens-WUmb_eBrpjs-unsplash_Fotor.jpg" alt="Ilustrasi Instagram, main media sosial Instagram" class="js-lazyload read-page--photo-gallery--item__picture-lazyload" data-template-var="image"></picture><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_zoom i-gallery-zoom js-icon-zoom"></span><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_plus i-gallery-plus js-icon-plus"></span></a><div class="read-page--photo-gallery--item__social-share js-social-share"><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://www.facebook.com/sharer/sharer.php?u=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_facebook i-gallery-facebook"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://twitter.com/intent/tweet?text=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_twitter i-gallery-twitter"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://plus.google.com/share?url=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_google-plus i-gallery-gplus"></span></a><a class="read-page--photo-gallery--item__share-button" href="mailto:?to=&amp;subject=%5BBOLA%5D%20Cara%20Memperbanyak%20Follower%20Instagram%20Secara%20Gratis%2C%20Mudah%2C%20dan%20Cepat&amp;body=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_email i-gallery-email"></span></a><a class="read-page--photo-gallery--item__share-button js-copy-link" href="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_copy-link i-gallery-copy-link"></span></a></div></div><figcaption class="read-page--photo-gallery--item__caption"><span>Ilustrasi Instagram, main media sosial Instagram. (Photo by Jakob Owens on Unsplash)</span></figcaption></figure></div><div class="article-content-body__item-content" data-component-name="desktop:read-page:article-content-body:section:text"><p>Cara selanjutnya ialah dengan mem-<em>follow</em> akun dengan follower yang jumlahnya fantastis, seperti akun-akun artis atau tokoh-tokoh lainnya. Setelah di-follow beberapa saat, <em>unfollow</em> lagi akun IG dengan followers fantastis tersebut.</p>
+<p>Hal ini cukup efektif karena biasanya follower Instagram selebritas kebanyakan akun baru yang memang sedang mencari follower. Dengan mem-<em>follow</em> akun tersebut, Anda biasanya akan diberi followback atau follow balik.</p>
+<p>Namu,n cara menambah followers ini harus dilakukan dengan dengan catatan jika ingin follower orang Indonesia, follow selebritas Indonesia juga.</p></div><div id="gpt-ad-bola-sc-3" class="article-ad"></div><div class="article-content-body__item-break" data-component-name="desktop:read-page:article-content-body:section:pageend"><div class="article-content-body__item-break-index">4 dari 8 halaman</div><hr class="article-content-body__item-break-line"></div></div><div class="article-content-body__item-page article-content-body__item-page_hidden" data-page="4" data-title="Menyukai Kiriman di Tab Explore"><h2 class="article-content-body__item-title" data-component-name="desktop:read-page:article-content-body:section:pagetitle">Menyukai Kiriman di Tab Explore</h2><div class="article-content-body__item-media"><figure class="read-page--photo-gallery--item" id="gallery-image-3230755" data-photo-gallery-page="4" data-image="https://cdn0-production-images-kly.akamaized.net/E9x_Jerki4z9TXOThZZle5lzklA=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3230755/original/046152600_1599463282-alex-bracken-X8WQD0UYsfA-unsplash.jpg" data-description="Ilustrasi Instagram, IG. (Photo by alex bracken on Unsplash)" data-title="Ilustrasi Instagram, IG" data-share-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat?photo=3230755" data-photo-id="?photo=3230755" data-copy-link-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat" data-component="desktop:read-page:photo-gallery:item" data-component-name="desktop:read-page:photo-gallery:item"><div class="read-page--photo-gallery--item__content js-gallery-content"><a href="#" class="read-page--photo-gallery--item__link"><picture class="read-page--photo-gallery--item__picture"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="640" height="360" data-src="https://cdn0-production-images-kly.akamaized.net/E9x_Jerki4z9TXOThZZle5lzklA=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3230755/original/046152600_1599463282-alex-bracken-X8WQD0UYsfA-unsplash.jpg" data-width="640" data-height="360" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/vvTMo0cfhqmERAvptVRRIll1zVU=/1280x720/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3230755/original/046152600_1599463282-alex-bracken-X8WQD0UYsfA-unsplash.jpg" alt="Ilustrasi Instagram, IG" class="js-lazyload read-page--photo-gallery--item__picture-lazyload" data-template-var="image"></picture><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_zoom i-gallery-zoom js-icon-zoom"></span><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_plus i-gallery-plus js-icon-plus"></span></a><div class="read-page--photo-gallery--item__social-share js-social-share"><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://www.facebook.com/sharer/sharer.php?u=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_facebook i-gallery-facebook"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://twitter.com/intent/tweet?text=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_twitter i-gallery-twitter"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://plus.google.com/share?url=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_google-plus i-gallery-gplus"></span></a><a class="read-page--photo-gallery--item__share-button" href="mailto:?to=&amp;subject=%5BBOLA%5D%20Cara%20Memperbanyak%20Follower%20Instagram%20Secara%20Gratis%2C%20Mudah%2C%20dan%20Cepat&amp;body=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_email i-gallery-email"></span></a><a class="read-page--photo-gallery--item__share-button js-copy-link" href="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_copy-link i-gallery-copy-link"></span></a></div></div><figcaption class="read-page--photo-gallery--item__caption"><span>Ilustrasi Instagram, IG. (Photo by alex bracken on Unsplash)</span></figcaption></figure></div><div class="article-content-body__item-content" data-component-name="desktop:read-page:article-content-body:section:text"><p>Cara berikutnya ialah dengan menyukai kiriman di tab explorer. Mungkin jarang dilakukan para pengguna instagram karena menghabiskan data internet saja dan membuang waktu.</p>
+<p>Selain itu, cara tersebut cukup menguras tenaga karena harus menyukai lebih dari 100 konten untuk mendapatkan follower.</p>
+<p>Tetapi, jika Anda melakukannya dengan mengandalkan WiFi, cara tersebut bisa dilakukan sesering mungkin untuk mendapatkan banyak follower dalam seminggu.</p></div><div id="gpt-ad-bola-sc-4" class="article-ad"></div><div class="article-content-body__item-break" data-component-name="desktop:read-page:article-content-body:section:pageend"><div class="article-content-body__item-break-index">5 dari 8 halaman</div><hr class="article-content-body__item-break-line"></div></div><div class="article-content-body__item-page article-content-body__item-page_hidden" data-page="5" data-title="Gunakan Hashtag, Tagar, dan Tag Populer"><h2 class="article-content-body__item-title" data-component-name="desktop:read-page:article-content-body:section:pagetitle">Gunakan Hashtag, Tagar, dan Tag Populer</h2><div class="article-content-body__item-media"><figure class="read-page--photo-gallery--item" id="gallery-image-3303764" data-photo-gallery-page="5" data-image="https://cdn0-production-images-kly.akamaized.net/0YT7a4VGOKrrdXOv-kKuufbv61c=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3303764/original/049644900_1606098414-smartphone-1701096_1280.jpg" data-description="Ilustrasi Instagram. (Gambar oleh USA-Reiseblogger dari Pixabay)" data-title="Ilustrasi Instagram" data-share-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat?photo=3303764" data-photo-id="?photo=3303764" data-copy-link-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat" data-component="desktop:read-page:photo-gallery:item" data-component-name="desktop:read-page:photo-gallery:item"><div class="read-page--photo-gallery--item__content js-gallery-content"><a href="#" class="read-page--photo-gallery--item__link"><picture class="read-page--photo-gallery--item__picture"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="640" height="360" data-src="https://cdn0-production-images-kly.akamaized.net/0YT7a4VGOKrrdXOv-kKuufbv61c=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3303764/original/049644900_1606098414-smartphone-1701096_1280.jpg" data-width="640" data-height="360" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/7n7SeQajzsBuwgxE53uu0J8Om-0=/1280x720/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3303764/original/049644900_1606098414-smartphone-1701096_1280.jpg" alt="Ilustrasi Instagram" class="js-lazyload read-page--photo-gallery--item__picture-lazyload" data-template-var="image"></picture><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_zoom i-gallery-zoom js-icon-zoom"></span><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_plus i-gallery-plus js-icon-plus"></span></a><div class="read-page--photo-gallery--item__social-share js-social-share"><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://www.facebook.com/sharer/sharer.php?u=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_facebook i-gallery-facebook"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://twitter.com/intent/tweet?text=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_twitter i-gallery-twitter"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://plus.google.com/share?url=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_google-plus i-gallery-gplus"></span></a><a class="read-page--photo-gallery--item__share-button" href="mailto:?to=&amp;subject=%5BBOLA%5D%20Cara%20Memperbanyak%20Follower%20Instagram%20Secara%20Gratis%2C%20Mudah%2C%20dan%20Cepat&amp;body=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_email i-gallery-email"></span></a><a class="read-page--photo-gallery--item__share-button js-copy-link" href="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_copy-link i-gallery-copy-link"></span></a></div></div><figcaption class="read-page--photo-gallery--item__caption"><span>Ilustrasi Instagram. (Gambar oleh USA-Reiseblogger dari Pixabay)</span></figcaption></figure></div><div class="article-content-body__item-content" data-component-name="desktop:read-page:article-content-body:section:text"><p>Menyertakan hashtag atau tanda pagar di tiap posting Instagram adalah cara menambah follower Instagram yang paling mendasar. Tagar ini semacam membuat kategori yang sesuai foto Instagram yang diunggah.</p>
+<p>Hal ini akan membuat foto yang diunggah akan lebih mudah ditemukan oleh pengguna lain, dan jika menarik pengguna akan mendapat follower baru.</p>
+<p>Sebagai contoh, jika Anda pegiat foto makanan atau foodie, di tiap foto makanan Anda, sertakanlah tagar informasi lengkap dari makanan Anda seperti #instafood, #kulinerjakarta, #masakanpadang, #doyanmakan, dan lain sebagainya.</p></div><div id="gpt-ad-bola-sc-5" class="article-ad"></div><div class="article-content-body__item-break" data-component-name="desktop:read-page:article-content-body:section:pageend"><div class="article-content-body__item-break-index">6 dari 8 halaman</div><hr class="article-content-body__item-break-line"></div></div><div class="article-content-body__item-page article-content-body__item-page_hidden" data-page="6" data-title="Perbanyak Konten"><h2 class="article-content-body__item-title" data-component-name="desktop:read-page:article-content-body:section:pagetitle">Perbanyak Konten</h2><div class="article-content-body__item-media"><figure class="read-page--photo-gallery--item" id="gallery-image-2998606" data-photo-gallery-page="6" data-image="https://cdn0-production-images-kly.akamaized.net/CMhgCOywuNhjOa6doZA-VWmKF0g=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/2998606/original/016642000_1576570364-IMG_20191217_123619.jpg" data-description="Ilustrasi Instagram. (Foto:unsplash.com)" data-title="Ilustrasi Instagram" data-share-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat?photo=2998606" data-photo-id="?photo=2998606" data-copy-link-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat" data-component="desktop:read-page:photo-gallery:item" data-component-name="desktop:read-page:photo-gallery:item"><div class="read-page--photo-gallery--item__content js-gallery-content"><a href="#" class="read-page--photo-gallery--item__link"><picture class="read-page--photo-gallery--item__picture"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="640" height="360" data-src="https://cdn0-production-images-kly.akamaized.net/CMhgCOywuNhjOa6doZA-VWmKF0g=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/2998606/original/016642000_1576570364-IMG_20191217_123619.jpg" data-width="640" data-height="360" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/1SMyewS8UVjgXERrYz9nWCAyEOk=/1280x720/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/2998606/original/016642000_1576570364-IMG_20191217_123619.jpg" alt="Ilustrasi Instagram" class="js-lazyload read-page--photo-gallery--item__picture-lazyload" data-template-var="image"></picture><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_zoom i-gallery-zoom js-icon-zoom"></span><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_plus i-gallery-plus js-icon-plus"></span></a><div class="read-page--photo-gallery--item__social-share js-social-share"><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://www.facebook.com/sharer/sharer.php?u=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_facebook i-gallery-facebook"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://twitter.com/intent/tweet?text=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_twitter i-gallery-twitter"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://plus.google.com/share?url=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_google-plus i-gallery-gplus"></span></a><a class="read-page--photo-gallery--item__share-button" href="mailto:?to=&amp;subject=%5BBOLA%5D%20Cara%20Memperbanyak%20Follower%20Instagram%20Secara%20Gratis%2C%20Mudah%2C%20dan%20Cepat&amp;body=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_email i-gallery-email"></span></a><a class="read-page--photo-gallery--item__share-button js-copy-link" href="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_copy-link i-gallery-copy-link"></span></a></div></div><figcaption class="read-page--photo-gallery--item__caption"><span>Ilustrasi Instagram. (Foto:unsplash.com)</span></figcaption></figure></div><div class="article-content-body__item-content" data-component-name="desktop:read-page:article-content-body:section:text"><p>Cara menambah follower Instagram paling tepat dan aman adalah dengan memperbanyak konten. Tentu ini cara menambah follower dengan proses yang panjang dan melelahkan untuk dijalani.</p>
+<p>Oleh karena itu, kreativitas diperlukan. Perbanyak konten Instagram dengan apa yang disukai. Hanya, konten Instagram ini tak boleh asal banyak saja, namun harus dibarengi oleh keunikan serta apa yang akan dilihat orang sebagai hal yang 'beda' dari akun lain.</p></div><div id="gpt-ad-bola-sc-6" class="article-ad"></div><div class="article-content-body__item-break" data-component-name="desktop:read-page:article-content-body:section:pageend"><div class="article-content-body__item-break-index">7 dari 8 halaman</div><hr class="article-content-body__item-break-line"></div></div><div class="article-content-body__item-page article-content-body__item-page_hidden" data-page="7" data-title="Beri Caption yang Keren"><h2 class="article-content-body__item-title" data-component-name="desktop:read-page:article-content-body:section:pagetitle">Beri Caption yang Keren</h2><div class="article-content-body__item-media"><figure class="read-page--photo-gallery--item" id="gallery-image-2387289" data-photo-gallery-page="7" data-image="https://cdn0-production-images-kly.akamaized.net/iXC-NHSPI0iU96eFloWxt8CwcRo=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/2387289/original/087315700_1539911542-1.jpg" data-description="Ilustrasi konten Instagram. (dok. pexels.com/Asnida Riani)" data-title="Ilustrasi konten Instagram" data-share-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat?photo=2387289" data-photo-id="?photo=2387289" data-copy-link-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat" data-component="desktop:read-page:photo-gallery:item" data-component-name="desktop:read-page:photo-gallery:item"><div class="read-page--photo-gallery--item__content js-gallery-content"><a href="#" class="read-page--photo-gallery--item__link"><picture class="read-page--photo-gallery--item__picture"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="640" height="360" data-src="https://cdn0-production-images-kly.akamaized.net/iXC-NHSPI0iU96eFloWxt8CwcRo=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/2387289/original/087315700_1539911542-1.jpg" data-width="640" data-height="360" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/ddabMBKKGdwQ1Va8Qc6iUqwraEE=/1280x720/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/2387289/original/087315700_1539911542-1.jpg" alt="Ilustrasi konten Instagram" class="js-lazyload read-page--photo-gallery--item__picture-lazyload" data-template-var="image"></picture><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_zoom i-gallery-zoom js-icon-zoom"></span><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_plus i-gallery-plus js-icon-plus"></span></a><div class="read-page--photo-gallery--item__social-share js-social-share"><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://www.facebook.com/sharer/sharer.php?u=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_facebook i-gallery-facebook"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://twitter.com/intent/tweet?text=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_twitter i-gallery-twitter"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://plus.google.com/share?url=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_google-plus i-gallery-gplus"></span></a><a class="read-page--photo-gallery--item__share-button" href="mailto:?to=&amp;subject=%5BBOLA%5D%20Cara%20Memperbanyak%20Follower%20Instagram%20Secara%20Gratis%2C%20Mudah%2C%20dan%20Cepat&amp;body=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_email i-gallery-email"></span></a><a class="read-page--photo-gallery--item__share-button js-copy-link" href="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_copy-link i-gallery-copy-link"></span></a></div></div><figcaption class="read-page--photo-gallery--item__caption"><span>Ilustrasi konten Instagram. (dok. pexels.com/Asnida Riani)</span></figcaption></figure></div><div class="article-content-body__item-content" data-component-name="desktop:read-page:article-content-body:section:text"><p>Caption yang baik dan keren akan lebih mudah menarik simpati orang. Gunakan quotes kece dari penulis atau tokoh terkenal sehingga bisa menambahkan tokoh tersebut dalam hashtag.</p>
+<p>Cek kembali keterangan foto dan jangan sampai typo atau salah ketik. Kamu juga bisa memberikan pertanyaan di akhir caption untuk mengundang respons dari orang lain.</p></div><div id="gpt-ad-bola-sc-7" class="article-ad"></div><div class="article-content-body__item-break" data-component-name="desktop:read-page:article-content-body:section:pageend"><div class="article-content-body__item-break-index">8 dari 8 halaman</div><hr class="article-content-body__item-break-line"></div></div><div class="article-content-body__item-page article-content-body__item-page_hidden" data-page="8" data-title="Gunakan Platform Lain"><h2 class="article-content-body__item-title" data-component-name="desktop:read-page:article-content-body:section:pagetitle">Gunakan Platform Lain</h2><div class="article-content-body__item-media"><figure class="read-page--photo-gallery--item" id="gallery-image-3084448" data-photo-gallery-page="8" data-image="https://cdn1-production-images-kly.akamaized.net/-meYOVlCnb0boH0-1HU_fbxnyik=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3084448/original/054334500_1585034675-white-smartphone-1851415.jpg" data-description="Ilustrasi Instagram. | pexels.com/@cristian-dina-924373" data-title="Ilustrasi Instagram" data-share-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat?photo=3084448" data-photo-id="?photo=3084448" data-copy-link-url="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat" data-component="desktop:read-page:photo-gallery:item" data-component-name="desktop:read-page:photo-gallery:item"><div class="read-page--photo-gallery--item__content js-gallery-content"><a href="#" class="read-page--photo-gallery--item__link"><picture class="read-page--photo-gallery--item__picture"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="640" height="360" data-src="https://cdn1-production-images-kly.akamaized.net/-meYOVlCnb0boH0-1HU_fbxnyik=/640x360/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3084448/original/054334500_1585034675-white-smartphone-1851415.jpg" data-width="640" data-height="360" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/mFAISSpp5eJtpmSkTOL8ZL_UJjM=/1280x720/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3084448/original/054334500_1585034675-white-smartphone-1851415.jpg" alt="Ilustrasi Instagram" class="js-lazyload read-page--photo-gallery--item__picture-lazyload" data-template-var="image"></picture><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_zoom i-gallery-zoom js-icon-zoom"></span><span class="read-page--photo-gallery--item__icon read-page--photo-gallery--item__icon_plus i-gallery-plus js-icon-plus"></span></a><div class="read-page--photo-gallery--item__social-share js-social-share"><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://www.facebook.com/sharer/sharer.php?u=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_facebook i-gallery-facebook"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://twitter.com/intent/tweet?text=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_twitter i-gallery-twitter"></span></a><a class="read-page--photo-gallery--item__share-button js-share-button" href="https://plus.google.com/share?url=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_google-plus i-gallery-gplus"></span></a><a class="read-page--photo-gallery--item__share-button" href="mailto:?to=&amp;subject=%5BBOLA%5D%20Cara%20Memperbanyak%20Follower%20Instagram%20Secara%20Gratis%2C%20Mudah%2C%20dan%20Cepat&amp;body=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_email i-gallery-email"></span></a><a class="read-page--photo-gallery--item__share-button js-copy-link" href="https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"><span class="read-page--photo-gallery--item__share-icon read-page--photo-gallery--item__share-icon_copy-link i-gallery-copy-link"></span></a></div></div><figcaption class="read-page--photo-gallery--item__caption"><span>Ilustrasi Instagram. | pexels.com/@cristian-dina-924373</span></figcaption></figure></div><div class="article-content-body__item-content" data-component-name="desktop:read-page:article-content-body:section:text"><p>Bagi yang menggunakan Instagram sebagai penunjang bisnis, promosikan produk di beberapa platform media sosial, seperti Facebook, Twitter, WhatsApp bahkan bisa juga mempromosikan produk melalui situs web.</p>
+<p>Jadi, bangun situs web terlebih dahulu, kemudian isikan beberapa konten menarik untuk diperlihatkan ke calon konsumen.</p>
+<p> </p>
+<p><strong>Sumber:</strong> Thelastsurvivors</p>
+<p><strong>Dapatkan artikel cara dari berbagai tema lain dengan mengeklik <a href="https://www.bola.com/tag/cara">tautan ini</a>.</strong></p></div><div id="video-3140314" class="read-page--video-gallery--item" data-component-name="desktop:read-page:video-gallery:item"><iframe class="vidio-embed read-page--video-gallery--item__vidio-embed" src="https://www.vidio.com/embed/1964808-5-pemain-indonesia-paling-populer-di-instagram-febri-hariyadi-juaranya?source=bola-ragam&amp;medium=embed&amp;autoplay=true&amp;player_only=false&amp;mute=true&amp;sticky=false&amp;embed_position=article-embed" width="0" height="0" frameborder="0" scrolling="no" allowfullscreen data-component-name="ui:iframe:vidio"></iframe><p class="read-page--video-gallery--item__video-caption"><b class="read-page--video-gallery--item__video-caption-location"></b>Vlog Bola.com 5 Pemain Indonesia Paling Populer di Instagram, Febri Hariyadi Juaranya</p></div><div id="gpt-ad-bola-sc-8" class="article-ad"></div></div><div class="article-content-body__item-loadmore"></div></div></div><div id="div-revive-ad-bola-contextual-oop" class="article-ad" data-component-name="ads:revive-ads"><!-- Revive Adserver Asynchronous JS Tag - Generated with Revive Adserver v5.0.5 www.bola.com - Contextual --><ins data-revive-zoneid="30" data-revive-id="826a5a6d8734276706a6e7f9fac6fabb" data-revive-zonename="www.bola.com - Contextual"></ins></div><div id="preco" class="preco" data-tags="Sportylife Apa Cara Cara Memperbanyak Follower Instagram Cara menambah follower Instagram Instagram Artikel Bola Bola.com"></div><div class="tags--snippet" data-component="desktop:tags:snippet" data-component-name="desktop:tags:snippet"><ul class="tags--snippet__list"><li id="tag-493688" class="tags--snippet__item" data-slug="sportylife" data-is-published-topic="" data-component="desktop:tags:snippet:item" data-component-name="desktop:tags:snippet:item"><a class="tags--snippet__link js-tags-link" href="https://www.bola.com/tag/sportylife"><span class="tags--snippet__name">Sportylife</span></a></li><li id="tag-58367" class="tags--snippet__item" data-slug="apa" data-is-published-topic="" data-component="desktop:tags:snippet:item" data-component-name="desktop:tags:snippet:item"><a class="tags--snippet__link js-tags-link" href="https://www.bola.com/tag/apa"><span class="tags--snippet__name">Apa</span></a></li><li id="tag-152355" class="tags--snippet__item" data-slug="cara" data-is-published-topic="" data-component="desktop:tags:snippet:item" data-component-name="desktop:tags:snippet:item"><a class="tags--snippet__link js-tags-link" href="https://www.bola.com/tag/cara"><span class="tags--snippet__name">Cara</span></a></li><li id="tag-662405" class="tags--snippet__item" data-slug="cara-memperbanyak-follower-instagram" data-is-published-topic="" data-component="desktop:tags:snippet:item" data-component-name="desktop:tags:snippet:item"><a class="tags--snippet__link js-tags-link" href="https://www.bola.com/tag/cara-memperbanyak-follower-instagram"><span class="tags--snippet__name">Cara Memperbanyak Follower Instagram</span></a></li><li id="tag-447590" class="tags--snippet__item" data-slug="cara-menambah-follower-instagram" data-is-published-topic="" data-component="desktop:tags:snippet:item" data-component-name="desktop:tags:snippet:item"><a class="tags--snippet__link js-tags-link" href="https://www.bola.com/tag/cara-menambah-follower-instagram"><span class="tags--snippet__name">Cara menambah follower Instagram</span></a></li><li id="tag-32568" class="tags--snippet__item" data-slug="instagram" data-is-published-topic="" data-component="desktop:tags:snippet:item" data-component-name="desktop:tags:snippet:item"><a class="tags--snippet__link js-tags-link" href="https://www.bola.com/tag/instagram"><span class="tags--snippet__name">Instagram</span></a></li><li id="tag-463877" class="tags--snippet__item" data-slug="artikel-bola" data-is-published-topic="" data-component="desktop:tags:snippet:item" data-component-name="desktop:tags:snippet:item"><a class="tags--snippet__link js-tags-link" href="https://www.bola.com/tag/artikel-bola"><span class="tags--snippet__name">Artikel Bola</span></a></li><li id="tag-131022" class="tags--snippet__item" data-slug="bolacom" data-is-published-topic="" data-component="desktop:tags:snippet:item" data-component-name="desktop:tags:snippet:item"><a class="tags--snippet__link js-tags-link" href="https://www.bola.com/tag/bolacom"><span class="tags--snippet__name">Bola.com</span></a></li></ul></div><div class="read-page--boost-video" data-component="desktop:read-page:boost-video" id="boost-video-4616653" data-cache-key="https_bola.com:bump:xhp_desktop__read_page__boost_video:a50ffa709ba5197c2e964ed0f9f6af7c:TextTypeArticle#4616653" data-cache-ttl="10" data-component-name="desktop:read-page:boost-video"></div><div class="read-page--boost-video" data-component="desktop:read-page:playlist-boost-video" id="boost-video-4616653" data-cache-key="https_bola.com:bump:xhp_desktop__read_page__playlist_boost_video:2b8a7a63c461c6fcd2f56a4c95518cf5:TextTypeArticle#4616653" data-cache-ttl="10" data-component-name="desktop:read-page:playlist-boost-video"></div><div class="read-page--engagement"><section id="reactions-4616653" class="reactions" data-article-id="4616653" data-csrf-token="Z7DdW93zG0Xhvs99y0jCTDQsJzTgqJTbf5RO3EJb" data-component="desktop:reactions" data-component-name="desktop:reactions"><h4 class="reactions__title"></h4><ul class="reactions__list"><li class="reactions--item " data-emotion-id="6" data-emotion-name="Suka" data-component-name="desktop:reactions:item"><a id="suka-btn" class="reactions--item__link" rel="nofollow" href="https://www.bola.com/login?back-to=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%23reactions-4616653"><div class="reactions--item__icon"><i class="i-reactions-suka"></i></div><span class="reactions--item__count" data-count="0">0%</span><span class="reactions--item__name">suka</span></a></li><li class="reactions--item " data-emotion-id="7" data-emotion-name="Lucu" data-component-name="desktop:reactions:item"><a id="lucu-btn" class="reactions--item__link" rel="nofollow" href="https://www.bola.com/login?back-to=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%23reactions-4616653"><div class="reactions--item__icon"><i class="i-reactions-lucu"></i></div><span class="reactions--item__count" data-count="0">0%</span><span class="reactions--item__name">lucu</span></a></li><li class="reactions--item " data-emotion-id="8" data-emotion-name="Sedih" data-component-name="desktop:reactions:item"><a id="sedih-btn" class="reactions--item__link" rel="nofollow" href="https://www.bola.com/login?back-to=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%23reactions-4616653"><div class="reactions--item__icon"><i class="i-reactions-sedih"></i></div><span class="reactions--item__count" data-count="0">0%</span><span class="reactions--item__name">sedih</span></a></li><li class="reactions--item " data-emotion-id="9" data-emotion-name="Marah" data-component-name="desktop:reactions:item"><a id="marah-btn" class="reactions--item__link" rel="nofollow" href="https://www.bola.com/login?back-to=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%23reactions-4616653"><div class="reactions--item__icon"><i class="i-reactions-marah"></i></div><span class="reactions--item__count" data-count="0">0%</span><span class="reactions--item__name">marah</span></a></li><li class="reactions--item " data-emotion-id="10" data-emotion-name="Kaget" data-component-name="desktop:reactions:item"><a id="kaget-btn" class="reactions--item__link" rel="nofollow" href="https://www.bola.com/login?back-to=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%23reactions-4616653"><div class="reactions--item__icon"><i class="i-reactions-kaget"></i></div><span class="reactions--item__count" data-count="0">0%</span><span class="reactions--item__name">kaget</span></a></li><li class="reactions--item " data-emotion-id="11" data-emotion-name="Aneh" data-component-name="desktop:reactions:item"><a id="aneh-btn" class="reactions--item__link" rel="nofollow" href="https://www.bola.com/login?back-to=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%23reactions-4616653"><div class="reactions--item__icon"><i class="i-reactions-aneh"></i></div><span class="reactions--item__count" data-count="0">0%</span><span class="reactions--item__name">aneh</span></a></li><li class="reactions--item " data-emotion-id="12" data-emotion-name="Takut" data-component-name="desktop:reactions:item"><a id="takut-btn" class="reactions--item__link" rel="nofollow" href="https://www.bola.com/login?back-to=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%23reactions-4616653"><div class="reactions--item__icon"><i class="i-reactions-takut"></i></div><span class="reactions--item__count" data-count="0">0%</span><span class="reactions--item__name">takut</span></a></li><li class="reactions--item " data-emotion-id="13" data-emotion-name="Takjub" data-component-name="desktop:reactions:item"><a id="takjub-btn" class="reactions--item__link" rel="nofollow" href="https://www.bola.com/login?back-to=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%23reactions-4616653"><div class="reactions--item__icon"><i class="i-reactions-takjub"></i></div><span class="reactions--item__count" data-count="0">0%</span><span class="reactions--item__name">takjub</span></a></li></ul></section><div id="credits-4616653" class="read-page--credits" data-component="desktop:read-page:credits" data-component-name="desktop:read-page:credits"><h4 class="read-page--credits__header">Kredit</h4><ul class="read-page--credits__list"><li class="read-page--credits__item"><div class="read-page--credits__popover hide"><div class="read-page--credits__popover-name">Faozan Tri Nugroho</div><div class="read-page--credits__popover-role">Author</div></div><a href="https://www.bola.com/me/faozan.nugroho" class="read-page--credits__item-link" title="Faozan Tri Nugroho" data-toggle="popover" data-container="#credits-popover-container" data-content="" data-placement="bottom" data-html="true"><picture class="read-page--credits__item-image"><img src="https://cdn1-production-images-kly.akamaized.net/5yKDpP9TsZgIr_9zr8me-1v4aOY=/40x40/smart/filters:quality(90):strip_icc():format(jpeg)/kly-media-production/avatars/1881493/original/089109400_1558617764-Mengedit_Atau_Menambah_Informasi_pada_Profil_Facebook.jpg" alt="Faozan Tri Nugroho" class="read-page--credits__item-image-img" data-width="40" data-height="40" data-template-var="image"></picture></a></li><li class="read-page--credits__item"><div class="read-page--credits__popover hide"><div class="read-page--credits__popover-name">Aning Jati</div><div class="read-page--credits__popover-role">Editor</div></div><a href="https://www.bola.com/me/Aning-Jati" class="read-page--credits__item-link" title="Aning Jati" data-toggle="popover" data-container="#credits-popover-container" data-content="" data-placement="bottom" data-html="true"><picture class="read-page--credits__item-image"><img src="https://cdn0-production-images-kly.akamaized.net/S3sZI-ed3MBUGhQ3OL_x3698UMk=/40x40/smart/filters:quality(90):strip_icc():format(jpeg)/kly-media-production/avatars/337821/original/058832000_1460136394-Anugraheni_Prasetyaningjati.jpg" alt="Aning Jati" class="read-page--credits__item-image-img" data-width="40" data-height="40" data-template-var="image"></picture></a></li></ul><div id="credits-popover-container" class="read-page--credits__popover popover-container"></div></div><div class="read-page--social-share bottom" data-component="desktop:read-page:social-share" data-component-name="desktop:read-page:social-share"><h4 class="read-page--social-share__header">Bagikan</h4><ul class="read-page--social-share__list"><li class="read-page--social-share__list-item"><a class="read-page--social-share__link read-page--social-share__link_facebook js-social-share" href="https://www.facebook.com/sharer/sharer.php?u=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%3Futm_source%3DDesktop%26utm_medium%3Dfacebook%26utm_campaign%3DShare_Bottom" data-popup-share="" rel="nofollow"><i class="read-page--social-share__icon i-gallery-facebook"></i></a></li><li class="read-page--social-share__list-item"><a class="read-page--social-share__link read-page--social-share__link_twitter js-social-share" href="https://twitter.com/intent/tweet?text=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%3Futm_source%3DDesktop%26utm_medium%3Dtwitter%26utm_campaign%3DShare_Bottom" data-popup-share="" rel="nofollow"><i class="read-page--social-share__icon i-gallery-twitter"></i></a></li><li class="read-page--social-share__list-item"><a class="read-page--social-share__link read-page--social-share__link_google-plus js-social-share" href="https://plus.google.com/share?url=https://www.bola.com/ragam/read/4616653/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%3Futm_source%3DDesktop%26utm_medium%3Dgoogle%26utm_campaign%3DShare_Bottom" data-popup-share="" rel="nofollow"><i class="read-page--social-share__icon i-gallery-gplus"></i></a></li><li class="read-page--social-share__list-item"><a class="read-page--social-share__link read-page--social-share__link_email" href="mailto:?to=&amp;subject=%5BBOLA%5D%20Cara%20Memperbanyak%20Follower%20Instagram%20Secara%20Gratis%2C%20Mudah%2C%20dan%20Cepat&amp;body=https%3A%2F%2Fwww.bola.com%2Fragam%2Fread%2F4616653%2Fcara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat%3Futm_source%3DDesktop%26utm_medium%3Dmail%26utm_campaign%3DShare_Bottom" rel="nofollow"><i class="read-page--social-share__icon i-gallery-email"></i></a></li></ul><div class="read-page--social-share__share-count"><span class="read-page--social-share__share-count-label"></span><span class="read-page--social-share__share-count-value">13</span></div></div></div></div><script type="text/javascript"> var channel_name = "Ragam"; </script><div id="middle-ad" data-info="ad"><div class="article-ad article-ad_ad-middle" data-ad-type="middle" data-info="ad" data-component-name="desktop:article-ad"><!-- START KLY CONTEXTUAL -->
+<!-- /36504930/www.bola.com/dfp-contextual -->
+<div id='div-gpt-ad-bolacom-contextual-oop' data-info='ad'></div>
+<!-- END KLY CONTEXTUAL -->
+
+<!-- START KLY MIDDLE -->
+<!-- /36504930/www.bola.com/dfp-middle -->
+<div id='div-gpt-ad-bolacom-middle' data-info="ad" style="margin-top: 30px;margin-bottom: 30px;"></div>
+<!-- END KLY MIDDLE --></div></div><section class="box " data-component-name="desktop:box"><div id="dablewidget_1XDGeWle" data-widget_id="1XDGeWle"></div><script>
+(function(d,a){d[a]=d[a]||function(){(d[a].q=d[a].q||[]).push(arguments)};}(window,'dable'));
+dable('renderWidget', 'dablewidget_1XDGeWle');
+</script></section><!-- DFP - START CRM 1 -->
+                            <div id="div-gpt-ad-bolacom-crm1-oop" data-info="ad"></div>
+                       <!-- DFP - END CRM 1  --><!-- DFP - START CRM 2 -->
+                            <div id="div-gpt-ad-bolacom-crm2-oop" data-info="ad"></div>
+                       <!-- DFP - END CRM 2  --><!-- DFP - START CRM 3 -->
+                            <div id="div-gpt-ad-bolacom-crm3-oop" data-info="ad"></div>
+                       <!-- DFP - END CRM 3  --><header class="desktop--header"><h3 class="desktop--header__title"><span class="desktop--header__title-text">Video Populer</span></h3></header><div class="popular" data-cache-key="https_bola.com:bump:App\Publishing\Lib\Collections\PopularVideos:f37d2255da3a50805db2c4ebb67dc980_Category#417:4f96a376d34d3c86244b4cc033d118e8" data-cache-ttl="60" data-component-name="desktop:popular"><div class="popular__item"><article class="popular--video" data-component-name="desktop:popular:video"><figure class="popular--video__figure"><a class="popular--video__figure-link" href="https://www.bola.com/dunia/read/4858549/video-kacaunya-piala-afrika-berikut-kronologi-kontroversi-laga-tunisia-vs-mali" title="VIDEO: Kacaunya Piala Afrika! Berikut Kronologi Kontroversi Laga Tunisia Vs Mali"><picture class="popular--video__figure-image"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="200" height="113" data-src="https://cdn1-production-images-kly.akamaized.net/l-jgooe003Rg3TQU_X7BumKl2p4=/200x113/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/thumbnails/3902358/original/013865900_1642053040-20220113_kacaunya-piala-afrika-berikut-kronologi-kontroversi-laga-tunisia-vs-mali-a9b383.jpg" data-width="200" data-height="113" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/9xFU9LTBhcZ1-PLNErqyKORHU-s=/400x226/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/thumbnails/3902358/original/013865900_1642053040-20220113_kacaunya-piala-afrika-berikut-kronologi-kontroversi-laga-tunisia-vs-mali-a9b383.jpg" alt="Berita video kronologi kontroversi yang terjadi pada laga Tunisia kontra Mali di Piala Afrika 2022, Rabu (12/1/2022) malam hari WIB." class="js-lazyload popular--video__figure-image-lazyload" data-template-var="image"></picture><span class="popular--video__figure-overlay"><i class="icon-video-small i-button-play"></i></span><span class="popular--video__duration">02:22</span></a></figure><p class="popular--video__title"><a class="popular--video__title-link js-popular-video-link" href="https://www.bola.com/dunia/read/4858549/video-kacaunya-piala-afrika-berikut-kronologi-kontroversi-laga-tunisia-vs-mali">VIDEO: Kacaunya Piala Afrika! Berikut Kronologi Kontroversi Laga Tunisia Vs Mali</a></p></article></div><div class="popular__item"><article class="popular--video" data-component-name="desktop:popular:video"><figure class="popular--video__figure"><a class="popular--video__figure-link" href="https://www.bola.com/indonesia/read/4859094/video-kalahkan-pss-sleman-arema-fc-pimpin-klasemen-sementara-bri-liga-1" title="VIDEO: Kalahkan PSS Sleman, Arema FC Pimpin Klasemen Sementara BRI Liga 1"><picture class="popular--video__figure-image"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="200" height="113" data-src="https://cdn1-production-images-kly.akamaized.net/JTf60EMktbrPDCrIxOWrlI3LMVs=/200x113/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/thumbnails/3902960/original/015990500_1642084596-full-highlights-arema-v-pss-0953f9.jpg" data-width="200" data-height="113" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/fa-79EMCvBDA_D01luxPYLM5Mzo=/400x226/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/thumbnails/3902960/original/015990500_1642084596-full-highlights-arema-v-pss-0953f9.jpg" alt="Berita Video, Kalahkan PSS Sleman, Arema FC Pimpin Klasemen Sementara BRI Liga 1" class="js-lazyload popular--video__figure-image-lazyload" data-template-var="image"></picture><span class="popular--video__figure-overlay"><i class="icon-video-small i-button-play"></i></span><span class="popular--video__duration">04:58</span></a></figure><p class="popular--video__title"><a class="popular--video__title-link js-popular-video-link" href="https://www.bola.com/indonesia/read/4859094/video-kalahkan-pss-sleman-arema-fc-pimpin-klasemen-sementara-bri-liga-1">VIDEO: Kalahkan PSS Sleman, Arema FC Pimpin Klasemen Sementara BRI Liga 1</a></p></article></div><div class="popular__item"><article class="popular--video" data-component-name="desktop:popular:video"><figure class="popular--video__figure"><a class="popular--video__figure-link" href="https://www.bola.com/indonesia/read/4859188/video-gol-tunggal-stefano-lilipaly-bawa-bali-united-unggul-atas-persib-bandung-di-pekan-19-bri-liga-1" title="VIDEO: Gol Tunggal Stefano Lilipaly Bawa Bali United Unggul atas Persib Bandung di Pekan 19 BRI Liga 1"><picture class="popular--video__figure-image"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="200" height="113" data-src="https://cdn0-production-images-kly.akamaized.net/x1-VZtit3RuG04ubMkkqtOjuz3A=/200x113/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/thumbnails/3903010/original/090485900_1642094652-full-highlights-persib-bandung-v-bali-united-5f3696.jpg" data-width="200" data-height="113" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/EfUisGTZzTULHtfQM-L9aG-d33o=/400x226/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/thumbnails/3903010/original/090485900_1642094652-full-highlights-persib-bandung-v-bali-united-5f3696.jpg" alt="Berita Video, Highlights Pertandingan BRI Liga 1 Pekan 19 antara Persib Bandung Vs Bali United pada Kamis (13/1/2022)" class="js-lazyload popular--video__figure-image-lazyload" data-template-var="image"></picture><span class="popular--video__figure-overlay"><i class="icon-video-small i-button-play"></i></span><span class="popular--video__duration">04:47</span></a></figure><p class="popular--video__title"><a class="popular--video__title-link js-popular-video-link" href="https://www.bola.com/indonesia/read/4859188/video-gol-tunggal-stefano-lilipaly-bawa-bali-united-unggul-atas-persib-bandung-di-pekan-19-bri-liga-1">VIDEO: Gol Tunggal Stefano Lilipaly Bawa Bali United Unggul atas Persib Bandung di Pekan 19 BRI Liga 1</a></p></article></div><div class="popular__item"><article class="popular--video" data-component-name="desktop:popular:video"><figure class="popular--video__figure"><a class="popular--video__figure-link" href="https://www.bola.com/indonesia/read/4858840/video-skylima-belum-terkalahkan-di-top-youth-premier-league-u-11" title="VIDEO: Skylima Belum Terkalahkan di Top Youth Premier League U-11"><picture class="popular--video__figure-image"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="200" height="113" data-src="https://cdn1-production-images-kly.akamaized.net/htyMeqiOlMCDaO_89ASPVASFfPs=/200x113/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/thumbnails/3902672/original/066176800_1642065979-20220113_skylima-belum-terkalahkan-di-top-youth-premier-league-u-11-661b93.jpg" data-width="200" data-height="113" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/1H_sjp3IfMVUfummuKDlhso_xR0=/400x226/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/thumbnails/3902672/original/066176800_1642065979-20220113_skylima-belum-terkalahkan-di-top-youth-premier-league-u-11-661b93.jpg" alt="Berita video tim Skylima sementara ini belum terkalahkan di Top Youth Premier League U-11." class="js-lazyload popular--video__figure-image-lazyload" data-template-var="image"></picture><span class="popular--video__figure-overlay"><i class="icon-video-small i-button-play"></i></span><span class="popular--video__duration">03:08</span></a></figure><p class="popular--video__title"><a class="popular--video__title-link js-popular-video-link" href="https://www.bola.com/indonesia/read/4858840/video-skylima-belum-terkalahkan-di-top-youth-premier-league-u-11">VIDEO: Skylima Belum Terkalahkan di Top Youth Premier League U-11</a></p></article></div><div class="popular__item"><article class="popular--video" data-component-name="desktop:popular:video"><figure class="popular--video__figure"><a class="popular--video__figure-link" href="https://www.bola.com/indonesia/read/4859404/video-prediksi-fantasy-team-bhayangkara-fc-krisis-striker-jelang-lawan-madura-united-di-bri-liga-1" title="VIDEO Prediksi Fantasy Team: Bhayangkara FC Krisis Striker Jelang Lawan Madura United di BRI Liga 1"><picture class="popular--video__figure-image"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="200" height="113" data-src="https://cdn1-production-images-kly.akamaized.net/RTysbFi6LMYVZ7ofdS3Hr4gh_kA=/200x113/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/thumbnails/3903266/original/085236900_1642131077-20220113_madura-v-bhayangkara-7e0e4b.jpg" data-width="200" data-height="113" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/bY2YHSgDGu8ynaIbVELjPdyRcoU=/400x226/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/thumbnails/3903266/original/085236900_1642131077-20220113_madura-v-bhayangkara-7e0e4b.jpg" alt="Berita video prediksi fantasy team, Bhayangkara krisis striker jelang lawan Madura United di BRI Liga 1 malam ini, Jumat (14/1/22)." class="js-lazyload popular--video__figure-image-lazyload" data-template-var="image"></picture><span class="popular--video__figure-overlay"><i class="icon-video-small i-button-play"></i></span><span class="popular--video__duration">05:01</span></a></figure><p class="popular--video__title"><a class="popular--video__title-link js-popular-video-link" href="https://www.bola.com/indonesia/read/4859404/video-prediksi-fantasy-team-bhayangkara-fc-krisis-striker-jelang-lawan-madura-united-di-bri-liga-1">VIDEO Prediksi Fantasy Team: Bhayangkara FC Krisis Striker Jelang Lawan Madura United di BRI Liga 1</a></p></article></div><div class="popular__item"><article class="popular--video" data-component-name="desktop:popular:video"><figure class="popular--video__figure"><a class="popular--video__figure-link" href="https://www.bola.com/moto-gp/read/4859456/video-presiden-joko-widodo-nyatakan-indonesia-siap-gelar-motogp-mandalika-2022" title="VIDEO: Presiden Joko Widodo Nyatakan Indonesia Siap Gelar MotoGP Mandalika 2022"><picture class="popular--video__figure-image"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="200" height="113" data-src="https://cdn0-production-images-kly.akamaized.net/k6LRK9T66rz8RkzA3xpKyoP9RQk=/200x113/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/thumbnails/3903313/original/007410000_1642133552-presiden-joko-widodo-nyatakan-indonesia-siap-gelar-motogp-mandalika-2022-525ad5.jpg" data-width="200" data-height="113" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/gctMIe4_pBqwYqWMwGiQYpGiiuY=/400x226/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/thumbnails/3903313/original/007410000_1642133552-presiden-joko-widodo-nyatakan-indonesia-siap-gelar-motogp-mandalika-2022-525ad5.jpg" alt="Berita Video, Presiden Joko Widodo Nyatakan Indonesia Siap Gelar MotoGP Mandalika 2022" class="js-lazyload popular--video__figure-image-lazyload" data-template-var="image"></picture><span class="popular--video__figure-overlay"><i class="icon-video-small i-button-play"></i></span><span class="popular--video__duration">02:05</span></a></figure><p class="popular--video__title"><a class="popular--video__title-link js-popular-video-link" href="https://www.bola.com/moto-gp/read/4859456/video-presiden-joko-widodo-nyatakan-indonesia-siap-gelar-motogp-mandalika-2022">VIDEO: Presiden Joko Widodo Nyatakan Indonesia Siap Gelar MotoGP Mandalika 2022</a></p></article></div></div><header class="desktop--header"><h3 class="desktop--header__title"><span class="desktop--header__title-text">Foto Populer</span></h3></header><div class="popular" data-cache-key="https_bola.com:bump:App\Publishing\Lib\Collections\PopularPhotos:7677d92f21c68b6cb776029dafb54619_Category#417:4f96a376d34d3c86244b4cc033d118e8" data-cache-ttl="60" data-component-name="desktop:popular"><div class="popular__item"><article class="popular--photo" data-component-name="desktop:popular:photo"><figure class="popular--photo__figure"><a class="popular--photo__figure-link" href="https://www.bola.com/dunia/read/4856259/foto-pesepak-bola-yang-namanya-tersematkan-julukan-gol-ada-mantan-bomber-timnas-indonesia" title="Foto: Pesepak Bola yang Namanya Tersematkan Julukan Gol, Ada Mantan Bomber Timnas Indonesia"><picture class="popular--photo__figure-image"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="200" height="113" data-src="https://cdn0-production-images-kly.akamaized.net/Ycy28GxZiSoBzSkyPCLPtotO8QI=/200x113/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3899802/original/090235800_1641834040-FotoJet__7_.jpg" data-width="200" data-height="113" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/FW3Iq0-vmAKZ7-jBKwN7HrSXIUI=/400x226/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3899802/original/090235800_1641834040-FotoJet__7_.jpg" alt="Kita pasti sering mendengar julukan Batigol yang tersemat pada bomber legendaris Argentina Gabriel Batistuta. Namun ternyata tidak hanya mantan penyerang Fiorentina itu saja yang menerima julukan tersebut. Berikut para pemain yang memiliki julukan gol." class="js-lazyload popular--photo__figure-image-lazyload" data-template-var="image"></picture><span class="popular--photo__count">6</span></a></figure><p class="popular--photo__title"><a class="popular--photo__title-link js-popular-photo-link" href="https://www.bola.com/dunia/read/4856259/foto-pesepak-bola-yang-namanya-tersematkan-julukan-gol-ada-mantan-bomber-timnas-indonesia">Foto: Pesepak Bola yang Namanya Tersematkan Julukan Gol, Ada Mantan Bomber Timnas Indonesia</a></p></article></div><div class="popular__item"><article class="popular--photo" data-component-name="desktop:popular:photo"><figure class="popular--photo__figure"><a class="popular--photo__figure-link" href="https://www.bola.com/indonesia/read/4858568/foto-4-pemain-timnas-indonesia-yang-layak-naik-kelas-untuk-bermain-di-luar-negeri-efek-hasil-positif-di-piala-aff-2020" title="Foto: 4 Pemain Timnas Indonesia yang Layak Naik Kelas untuk Bermain di Luar Negeri, Efek Hasil Positif di Piala AFF 2020"><picture class="popular--photo__figure-image"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="200" height="113" data-src="https://cdn1-production-images-kly.akamaized.net/67UkH4WgWY_bnYYeSAVMqOeaV5M=/200x113/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3902372/original/095043200_1642053938-4_000_9VF7JY.jpg" data-width="200" data-height="113" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/ymHEPqKL2Z9XqVCrtaMk9bdNF3s=/400x226/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3902372/original/095043200_1642053938-4_000_9VF7JY.jpg" alt="Timnas Indonesia memang kembali gagal jadi yang terbaik di kesempatan keenamnya dalam ajang Piala AFF 2020 lalu. Namun skuat Garuda mampu menampilkan penampilan ciamik hingga partai final, termasuk 4 pemain berikut yang layak untuk bermain di luar negeri. (AFP/Roslan Rahman)" class="js-lazyload popular--photo__figure-image-lazyload" data-template-var="image"></picture><span class="popular--photo__count">9</span></a></figure><p class="popular--photo__title"><a class="popular--photo__title-link js-popular-photo-link" href="https://www.bola.com/indonesia/read/4858568/foto-4-pemain-timnas-indonesia-yang-layak-naik-kelas-untuk-bermain-di-luar-negeri-efek-hasil-positif-di-piala-aff-2020">Foto: 4 Pemain Timnas Indonesia yang Layak Naik Kelas untuk Bermain di Luar Negeri, Efek Hasil Positif di Piala AFF 2020</a></p></article></div><div class="popular__item"><article class="popular--photo" data-component-name="desktop:popular:photo"><figure class="popular--photo__figure"><a class="popular--photo__figure-link" href="https://www.bola.com/indonesia/read/4859035/foto-disaksikan-langsung-oleh-ketua-umum-pssi-timnas-wanita-indonesia-gulung-tim-putri-persib-bandung-saat-laga-uji-coba" title="Foto: Disaksikan Langsung oleh Ketua Umum PSSI, Timnas Wanita Indonesia Gulung Tim Putri Persib Bandung saat Laga Uji Coba"><picture class="popular--photo__figure-image"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="200" height="113" data-src="https://cdn1-production-images-kly.akamaized.net/7Mq4ol1MLTGyZLXd-Amai4VIuBI=/0x0:3500x1969/200x113/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3902890/original/004664200_1642078920-20220113_Timnas_Wanita_vs_Persib_Bandung_5.jpg" data-width="200" data-height="113" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/hUCw8ra1LuD_8rQr0_m5W8Ul_uo=/0x0:3500x1969/400x226/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3902890/original/004664200_1642078920-20220113_Timnas_Wanita_vs_Persib_Bandung_5.jpg" alt="Pemain Timnas Wanita Indonesia, Zahra Muzdalifah mencetak gol saat laga uji coba melawan Tim Putri Persib Bandung di Stadion Madya, Jakarta, Kamis (13/01/2022). Laga yang dimenangkan Garuda Pertiwi dengan skor 10-0 dihadiri oleh Ketua Umum PSSI, Mochamad Iriawan. (Bola.com/Bagaskara Lazuardi)" class="js-lazyload popular--photo__figure-image-lazyload" data-template-var="image"></picture><span class="popular--photo__count">10</span></a></figure><p class="popular--photo__title"><a class="popular--photo__title-link js-popular-photo-link" href="https://www.bola.com/indonesia/read/4859035/foto-disaksikan-langsung-oleh-ketua-umum-pssi-timnas-wanita-indonesia-gulung-tim-putri-persib-bandung-saat-laga-uji-coba">Foto: Disaksikan Langsung oleh Ketua Umum PSSI, Timnas Wanita Indonesia Gulung Tim Putri Persib Bandung saat Laga Uji Coba</a></p></article></div><div class="popular__item"><article class="popular--photo" data-component-name="desktop:popular:photo"><figure class="popular--photo__figure"><a class="popular--photo__figure-link" href="https://www.bola.com/dunia/read/4858928/foto-7-pemain-asing-dengan-penampilan-terbanyak-di-liga-italia-sepanjang-sejarah-legenda-inter-milan-javier-zanetti-rajanya" title="Foto: 7 Pemain Asing dengan Penampilan Terbanyak di Liga Italia Sepanjang Sejarah, Legenda Inter Milan Javier Zanetti Rajanya"><picture class="popular--photo__figure-image"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="200" height="113" data-src="https://cdn1-production-images-kly.akamaized.net/VRyiCEm3GmwSNNVepN7RGPoQkAw=/200x113/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3902765/original/062841900_1642070171-000_Par6047783.jpg" data-width="200" data-height="113" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/XFfYkL7MddKwTPVGyMCITf_jk8c=/400x226/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3902765/original/062841900_1642070171-000_Par6047783.jpg" alt="Liga Italia dengan Serie A-nya telah menjadi salah satu destinasi para pemain dari seluruh dunia untuk bersaing menjadi yang terbaik. Dari seluruh pemain asing yang berlaga di Serie A, tercatat 7 pemain dengan penampilan terbanyak sepanjang sejarah hingga kini. (AFP/Olivier Morin)" class="js-lazyload popular--photo__figure-image-lazyload" data-template-var="image"></picture><span class="popular--photo__count">8</span></a></figure><p class="popular--photo__title"><a class="popular--photo__title-link js-popular-photo-link" href="https://www.bola.com/dunia/read/4858928/foto-7-pemain-asing-dengan-penampilan-terbanyak-di-liga-italia-sepanjang-sejarah-legenda-inter-milan-javier-zanetti-rajanya">Foto: 7 Pemain Asing dengan Penampilan Terbanyak di Liga Italia Sepanjang Sejarah, Legenda Inter Milan Javier Zanetti Rajanya</a></p></article></div><div class="popular__item"><article class="popular--photo" data-component-name="desktop:popular:photo"><figure class="popular--photo__figure"><a class="popular--photo__figure-link" href="https://www.bola.com/dunia/read/4859032/foto-5-rekor-transfer-pemain-mls-ke-klub-top-eropa-alphonso-davies-tersukses-bersama-bayern-munchen" title="Foto: 5 Rekor Transfer Pemain MLS ke Klub Top Eropa, Alphonso Davies Tersukses Bersama Bayern Munchen"><picture class="popular--photo__figure-image"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="200" height="113" data-src="https://cdn1-production-images-kly.akamaized.net/YD2yOG2nRddWfSJDIAP5f2roaaM=/200x113/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3902884/original/046501200_1642078547-000_1WP4FD.jpg" data-width="200" data-height="113" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/oQfWFmAMoyLVjfByJs1HkaxYmj4=/400x226/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3902884/original/046501200_1642078547-000_1WP4FD.jpg" alt="Major League Soccer (MLS) di Amerika Serikat dahulu dikenal sebagai liga yang mengimpor para pemain tua dari Eropa yang mendekati masa pensiun. Kini anggapan tersebut mulai terkikis. MLS mulai mengekspor pemainnya ke liga top Eropa, seperti 5 pemain berikut. (AFP/Pool/Miguel A. Lopes)" class="js-lazyload popular--photo__figure-image-lazyload" data-template-var="image"></picture><span class="popular--photo__count">6</span></a></figure><p class="popular--photo__title"><a class="popular--photo__title-link js-popular-photo-link" href="https://www.bola.com/dunia/read/4859032/foto-5-rekor-transfer-pemain-mls-ke-klub-top-eropa-alphonso-davies-tersukses-bersama-bayern-munchen">Foto: 5 Rekor Transfer Pemain MLS ke Klub Top Eropa, Alphonso Davies Tersukses Bersama Bayern Munchen</a></p></article></div><div class="popular__item"><article class="popular--photo" data-component-name="desktop:popular:photo"><figure class="popular--photo__figure"><a class="popular--photo__figure-link" href="https://www.bola.com/dunia/read/4858491/foto-5-pemain-yang-paling-banyak-menerima-assist-dari-lionel-messi" title="Foto: 5 Pemain yang Paling Banyak Menerima Assist dari Lionel Messi"><picture class="popular--photo__figure-image"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="200" height="113" data-src="https://cdn1-production-images-kly.akamaized.net/_P6AGy9jH-e7UzxONcxNOKH9ceY=/200x113/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3902294/original/095996800_1642049437-000_Par6082451.jpg" data-width="200" data-height="113" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/8n35tql4_hRJDuEPZhiHjpHPxDs=/400x226/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3902294/original/095996800_1642049437-000_Par6082451.jpg" alt="Sejak didatangkan dari Valencia pada tahun 2010, David Villa langsung nyetel bersama Lionel Messi di lini depan Blaugrana. Villa tercatat tampil sebanyak 199 kali dengan mencetak 48 gol, dimana 25 persen (12) golnya merupakan assist dari Lionel Messi. (AFP/Josep Lago)" class="js-lazyload popular--photo__figure-image-lazyload" data-template-var="image"></picture><span class="popular--photo__count">5</span></a></figure><p class="popular--photo__title"><a class="popular--photo__title-link js-popular-photo-link" href="https://www.bola.com/dunia/read/4858491/foto-5-pemain-yang-paling-banyak-menerima-assist-dari-lionel-messi">Foto: 5 Pemain yang Paling Banyak Menerima Assist dari Lionel Messi</a></p></article></div></div></article><script>  function pageRequestBug(clientId) {
+    var url = 'https://www.bola.com/ragam/widgets-nocache/analytics_page_request/4616653/Article';
+
+    if (clientId) {
+      url = url + '?client_id=' + clientId ;
+    }
+
+    return $('<img src="' + url + '" class="hidden page-request"/>');
+  }
+
+  $(window).on('load', function() {
+    if ( Math.random() > 0.05 ) {
+      return;
+    }
+
+    if (typeof ga === 'undefined') {
+      $('body').append( pageRequestBug() );
+      return;
+    }
+
+    ga(function(tracker) {
+      var clientId = tracker.get('clientId');
+      $('body').append( pageRequestBug(clientId) );
+    });
+  });</script><noscript><img src="https://www.bola.com/ragam/widgets-nocache/analytics_page_request/4616653/Article" class="hidden page-request"></noscript></div></div><div class="container-aside" itemscope="itemscope" itemtype="http://schema.org/WPSideBar"><aside class="main"><div class="fixed-sidebar fixed-sidebar-right clearfix"><section class="box " data-component-name="desktop:box"><div class="article-ad article-ad_ad-mr1" data-ad-type="mr1" data-info="ad" data-component-name="desktop:article-ad"><!-- START KLY SHOWCASE -->
+<!-- /36504930/www.bola.com/dfp-sc -->
+<div id='div-gpt-ad-bolacom-sc' style='height:250px;' data-info='ad'></div>
+<!-- END KLY SHOWCASE --></div></section><section id="trending-tags-inline" class="box trending-tags trending-tags_inline" data-component-name="desktop:box"><header class="box--header" data-component="desktop:box:header" data-component-name="desktop:box:header"><h3 class="box--header__title">Topik Populer</h3></header><ul class="aside-list asides--trending-tags" data-component="desktop:asides:trending-tags" data-cache-key="https_bola.com:bump:xhp_desktop__asides__trending_tags:803a71304c905a7c502b2ffb115b56c7:10_Category#486" data-cache-ttl="10" data-component-name="desktop:asides:trending-tags"><li class="tag-snippet" id="trending_tag_152355" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/cara" class="tag-snippet__link" data-slug="cara"><span class="tag-snippet__text">Cara</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_28212" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/bulutangkis" class="tag-snippet__link" data-slug="bulutangkis"><span class="tag-snippet__text">Bulutangkis</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_58367" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/apa" class="tag-snippet__link" data-slug="apa"><span class="tag-snippet__text">Apa</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_31330" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/f1" class="tag-snippet__link" data-slug="f1"><span class="tag-snippet__text">F1</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_33115" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/nba" class="tag-snippet__link" data-slug="nba"><span class="tag-snippet__text">NBA</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_588520" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/bola-beli" class="tag-snippet__link" data-slug="bola-beli"><span class="tag-snippet__text">Bola Beli</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_27349" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/manfaat" class="tag-snippet__link" data-slug="manfaat"><span class="tag-snippet__text">Manfaat</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_54585" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/lucu" class="tag-snippet__link" data-slug="lucu"><span class="tag-snippet__text">lucu</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_443979" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/raga-jelita" class="tag-snippet__link" data-slug="raga-jelita"><span class="tag-snippet__text">Raga Jelita</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li></ul></section><div class="content-promotion" data-cache-key="https_bola.com:bump:Category#486::STS1::6f6b43a6874f5aa9941fd8ad879e4f9b" data-cache-ttl="30" data-component-name="desktop:content-promotion:sts"><section class="content-promotion--sts__wrapper" data-position="STS1" data-component="desktop:content-promotion:sts"><header class="content-promotion--header-sts " data-component-name="desktop:content-promotion:header"><h3 class="content-promotion--header-sts__title"><a class="content-promotion--header-sts__link" href="https://www.bola.com/tag/bulutangkis?HouseAds&amp;campaign=Bulutangkis_Ragam_STS1" title="UPDATE BERITA BULUTANGKIS"><span class="content-promotion--header-sts__link-title">UPDATE BERITA BULUTANGKIS</span></a></h3></header><ul class="content-promotion--sts__list"><li class="article-snippet--big__item article-snippet--big__image-size__300-170" id="article-4859008" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:big"><article class="article-snippet--big__article"><figure class="article-snippet--big__thumbnail"><a class="article-snippet--big__link" href="https://www.bola.com/ragam/read/4859008/kevin-sanjaya-pamer-kemesraan-bareng-valencia-tanoesoedibjo-sudah-go-public-nih?HouseAds&amp;campaign=Bulutangkis_Ragam_STS1" title="Kevin Sanjaya Pamer Kemesraan Bareng Valencia Tanoesoedibjo, Sudah Go Public Nih?" data-template-var="" onclick="return clickEvent('Desktop', 'Click', 'Desktop::Click::Promotion::bulutangkis');"><picture class="small"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="300" height="170" data-src="https://cdn1-production-images-kly.akamaized.net/YgPIFyu28SPekCQW8V-7NJ5_tOs=/300x170/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/2552690/original/053337200_1545287847-20181219IQ_Kejurnas_Badminton_13.JPG" data-width="300" data-height="170" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/_OpCAS1z-DjXapzbHiIEGu_kz80=/600x340/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/2552690/original/053337200_1545287847-20181219IQ_Kejurnas_Badminton_13.JPG" alt="Pebulutangkis PB DJarum, Kevin Sanjaya, pada laga Kejurnas PBSI di Britama Arena, Jakarta, Rabu (19/12). Bintang Bulutangkis Indonesia beradu aksi dengan membela klub nya masing-masing. (Bola.com/M Iqbal Ichsan)" class="js-lazyload small-lazyload" data-template-var="image"></picture></a></figure><div class="article-snippet--big__caption"><h5 class="article-snippet--big__title"><a class="article-snippet--big__link" href="https://www.bola.com/ragam/read/4859008/kevin-sanjaya-pamer-kemesraan-bareng-valencia-tanoesoedibjo-sudah-go-public-nih?HouseAds&amp;campaign=Bulutangkis_Ragam_STS1" title="Kevin Sanjaya Pamer Kemesraan Bareng Valencia Tanoesoedibjo, Sudah Go Public Nih?" data-template-var="" onclick="return clickEvent('Desktop', 'Click', 'Desktop::Click::Promotion::bulutangkis');">Kevin Sanjaya Pamer Kemesraan Bareng Valencia Tanoesoedibjo, Sudah Go Public Nih?</a></h5></div></article></li><li class="article-snippet--small__item " id="article-4857039" data-template-name="article-snippet-small" data-template-var="container" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:small"><article class="article-snippet--small__article"><figure class="article-snippet--small__thumbnail"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4857039/hasil-india-open-2022-ahsan-hendra-tuai-kemenangan-manis-di-laga-pembuka?HouseAds&amp;campaign=Bulutangkis_Ragam_STS1" title="Hasil India Open 2022: Ahsan / Hendra Tuai Kemenangan Manis di Laga Pembuka" data-template-var="image" onclick="return clickEvent('Desktop', 'Click', 'Desktop::Click::Promotion::bulutangkis');"><picture class="tiny"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="60" height="60" data-src="https://cdn1-production-images-kly.akamaized.net/LPD4X5JOpCpWGzWOkZNpZiKSKis=/60x60/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3051408/original/097975100_1581813062-PBSI_BATC_2020_1502_Putra_Hendra_Ahsan-2.jpg" data-width="60" data-height="60" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/nfY1OqPBosMAPn8Rw3Yr8-IGFXc=/120x120/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3051408/original/097975100_1581813062-PBSI_BATC_2020_1502_Putra_Hendra_Ahsan-2.jpg" alt="Mohammad Ahsan/Hendra Setiawan di Perempat Final Kejuaraan Bulutangkis Beregu Asia 2020. (PBSI)" class="js-lazyload tiny-lazyload" data-template-var="image"></picture></a></figure><div class="article-snippet--small__caption"><div class="article-snippet--small__center"><h5 class="article-snippet--small__title"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4857039/hasil-india-open-2022-ahsan-hendra-tuai-kemenangan-manis-di-laga-pembuka?HouseAds&amp;campaign=Bulutangkis_Ragam_STS1" title="Hasil India Open 2022: Ahsan / Hendra Tuai Kemenangan Manis di Laga Pembuka" data-template-var="title" onclick="return clickEvent('Desktop', 'Click', 'Desktop::Click::Promotion::bulutangkis');">Hasil India Open 2022: Ahsan / Hendra Tuai Kemenangan Manis di Laga Pembuka</a></h5></div></div></article></li><li class="article-snippet--small__item " id="article-4854749" data-template-name="article-snippet-small" data-template-var="container" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:small"><article class="article-snippet--small__article"><figure class="article-snippet--small__thumbnail"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4854749/wejangan-ginting-kepada-atlet-jawa-barat-yang-akan-seleksi-pelantas-pbsi-di-cipayung?HouseAds&amp;campaign=Bulutangkis_Ragam_STS1" title="Wejangan Ginting kepada Atlet Jawa Barat yang Akan Seleksi Pelantas PBSI di Cipayung" data-template-var="image" onclick="return clickEvent('Desktop', 'Click', 'Desktop::Click::Promotion::bulutangkis');"><picture class="tiny"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="60" height="60" data-src="https://cdn1-production-images-kly.akamaized.net/36scdvMc-inXtuqbNU-n3naOX3k=/60x60/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3898239/original/064588700_1641651202-Anthony_Ginting_.jpg" data-width="60" data-height="60" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/QRPl1t42sCc0s3QHpY_0ynRB_5k=/120x120/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3898239/original/064588700_1641651202-Anthony_Ginting_.jpg" alt="Pebulutangkis Dunia, Anthony Ginting saat memberikan motivasi kepada 43 atlet asal Jabar yang akan ikut Seleknas di camp Pelatnas PBSI, Cipayung, 10-15 Januari 2022. (Dok. Humas PBSI Jawa Barat)" class="js-lazyload tiny-lazyload" data-template-var="image"></picture></a></figure><div class="article-snippet--small__caption"><div class="article-snippet--small__center"><h5 class="article-snippet--small__title"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4854749/wejangan-ginting-kepada-atlet-jawa-barat-yang-akan-seleksi-pelantas-pbsi-di-cipayung?HouseAds&amp;campaign=Bulutangkis_Ragam_STS1" title="Wejangan Ginting kepada Atlet Jawa Barat yang Akan Seleksi Pelantas PBSI di Cipayung" data-template-var="title" onclick="return clickEvent('Desktop', 'Click', 'Desktop::Click::Promotion::bulutangkis');">Wejangan Ginting kepada Atlet Jawa Barat yang Akan Seleksi Pelantas PBSI di Cipayung</a></h5></div></div></article></li></ul></section></div><div class="content-promotion" data-cache-key="https_bola.com:bump:Category#486::STS2::6f6b43a6874f5aa9941fd8ad879e4f9b" data-cache-ttl="30" data-component-name="desktop:content-promotion:sts"><section class="content-promotion--sts__wrapper" data-position="STS2" data-component="desktop:content-promotion:sts"><header class="content-promotion--header-sts " data-component-name="desktop:content-promotion:header"><h3 class="content-promotion--header-sts__title"><a class="content-promotion--header-sts__link" href="https://www.bola.com/tag/formula-1?HouseAds&amp;campaign=formula_1_Ragam_STS2" title="DUEL SERU BEDA GENERASI"><span class="content-promotion--header-sts__link-title">DUEL SERU BEDA GENERASI</span></a></h3></header><ul class="content-promotion--sts__list"><li class="article-snippet--big__item article-snippet--big__image-size__300-170" id="article-4849430" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:big"><article class="article-snippet--big__article"><figure class="article-snippet--big__thumbnail"><a class="article-snippet--big__link" href="https://www.bola.com/ragam/read/4849430/daftar-lengkap-pembalap-f1-2022-rekan-setim-baru-lewis-hamilton-max-verstappen-masih-dengan-sergio-perez?HouseAds&amp;campaign=formula_1__Ragam_STS2" title="Daftar Lengkap Pembalap F1 2022: Rekan Setim Baru Lewis Hamilton, Max Verstappen Masih dengan Sergio Perez" data-template-var="" onclick="return clickEvent('Desktop', 'Click', 'Desktop::Click::Promotion::formula-1');"><picture class="small"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="300" height="170" data-src="https://cdn1-production-images-kly.akamaized.net/YTj7okZfn7-Bfylbmr5dUelfij8=/300x170/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3660470/original/041838300_1639318019-000_9UG32X.jpg" data-width="300" data-height="170" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/LrpOtKVHkfUtuQUDMJoO5FhVTAU=/600x340/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3660470/original/041838300_1639318019-000_9UG32X.jpg" alt="Lewis Hamilton dan Max Verstappen. (KAMRAN JEBREILI / POOL / AFP)" class="js-lazyload small-lazyload" data-template-var="image"></picture></a></figure><div class="article-snippet--big__caption"><h5 class="article-snippet--big__title"><a class="article-snippet--big__link" href="https://www.bola.com/ragam/read/4849430/daftar-lengkap-pembalap-f1-2022-rekan-setim-baru-lewis-hamilton-max-verstappen-masih-dengan-sergio-perez?HouseAds&amp;campaign=formula_1__Ragam_STS2" title="Daftar Lengkap Pembalap F1 2022: Rekan Setim Baru Lewis Hamilton, Max Verstappen Masih dengan Sergio Perez" data-template-var="" onclick="return clickEvent('Desktop', 'Click', 'Desktop::Click::Promotion::formula-1');">Daftar Lengkap Pembalap F1 2022: Rekan Setim Baru Lewis Hamilton, Max Verstappen Masih dengan Sergio Perez</a></h5></div></article></li><li class="article-snippet--small__item " id="article-4833436" data-template-name="article-snippet-small" data-template-var="container" data-kanal-page="sea-games" data-page-type="article" data-component-name="desktop:asides:article-snippet:small"><article class="article-snippet--small__article"><figure class="article-snippet--small__thumbnail"><a class="article-snippet__link" href="https://www.bola.com/sea-games/read/4833436/lewis-hamilton-unfollow-semua-orang-di-instagram-ada-apa-nih?HouseAds&amp;campaign=formula_1__Ragam_STS2" title="Lewis Hamilton Unfollow Semua Orang di Instagram, Ada Apa Nih?" data-template-var="image" onclick="return clickEvent('Desktop', 'Click', 'Desktop::Click::Promotion::formula-1');"><picture class="tiny"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="60" height="60" data-src="https://cdn1-production-images-kly.akamaized.net/3DPvDgu4XlAGnkEqv6eIKdmkC10=/60x60/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3583789/original/081546200_1632665844-000_9NK4T6.jpg" data-width="60" data-height="60" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/8yKShroFV006O56JyVXRdy5ddoc=/120x120/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3583789/original/081546200_1632665844-000_9NK4T6.jpg" alt="Ekspresi pembalap Mercedes, Lewis Hamilton, setelah memenangi balapan F1 GP Rusia, di Sirkuit Sochi, Minggu (26/9/2021). (Yuri Kochetkov/AFP)" class="js-lazyload tiny-lazyload" data-template-var="image"></picture></a></figure><div class="article-snippet--small__caption"><div class="article-snippet--small__center"><h5 class="article-snippet--small__title"><a class="article-snippet__link" href="https://www.bola.com/sea-games/read/4833436/lewis-hamilton-unfollow-semua-orang-di-instagram-ada-apa-nih?HouseAds&amp;campaign=formula_1__Ragam_STS2" title="Lewis Hamilton Unfollow Semua Orang di Instagram, Ada Apa Nih?" data-template-var="title" onclick="return clickEvent('Desktop', 'Click', 'Desktop::Click::Promotion::formula-1');">Lewis Hamilton Unfollow Semua Orang di Instagram, Ada Apa Nih?</a></h5></div></div></article></li></ul></section></div><section id="popular-articles" class="box " data-component-name="desktop:box"><header class="box--header" data-component="desktop:box:header" data-component-name="desktop:box:header"><h3 class="box--header__title"><a class="box--header__title-link" href="https://www.bola.com/ragam/indeks/terpopuler">Populer</a></h3><span class="box--header__more"><a class="box--header__more-link" href="https://www.bola.com/ragam/indeks/terpopuler">Lihat Semua</a><i class="box--header__more-icon i-arrow"></i></span></header><ul class="aside-list popular" data-component="desktop:asides:articles" data-feature-name="populer" data-cache-key="https_bola.com:bump:xhp_desktop__asides__articles:e0a1e312a48bc2ee1c2a73ddc7d2b835:App\Publishing\Lib\Collections\PopularArticles:d18ccd5de16aa4e7a8d4eca56ae75cde_Category#486:number" data-cache-ttl="15" data-component-name="desktop:asides:articles"><li class="article-snippet--numbered article-snippet--numbered__first" id="article-4859008" data-template-name="article-snippet-numbered" data-template-var="container" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:numbered"><figure class="article-snippet--numbered__thumbnail"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4859008/kevin-sanjaya-pamer-kemesraan-bareng-valencia-tanoesoedibjo-sudah-go-public-nih" title="Kevin Sanjaya Pamer Kemesraan Bareng Valencia Tanoesoedibjo, Sudah Go Public Nih?" data-template-var="image"><picture class="big"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="300" height="172" data-src="https://cdn1-production-images-kly.akamaized.net/V9m3ejzjbOHdzs95mx7dyJkkKw0=/300x172/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/2552690/original/053337200_1545287847-20181219IQ_Kejurnas_Badminton_13.JPG" data-width="300" data-height="172" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/hLPvnr1kHt0DLjM3FYLsr3krpUc=/600x344/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/2552690/original/053337200_1545287847-20181219IQ_Kejurnas_Badminton_13.JPG" alt="Pebulutangkis PB DJarum, Kevin Sanjaya, pada laga Kejurnas PBSI di Britama Arena, Jakarta, Rabu (19/12). Bintang Bulutangkis Indonesia beradu aksi dengan membela klub nya masing-masing. (Bola.com/M Iqbal Ichsan)" class="js-lazyload big-lazyload" data-template-var="image"></picture></a></figure><article class="article-snippet--numbered__article"><span class="article-snippet--numbered__number">1</span><div class="article-snippet--numbered__wrapper"><span class="article-snippet--numbered__category">Ragam</span><h5 class="article-snippet--numbered__title"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4859008/kevin-sanjaya-pamer-kemesraan-bareng-valencia-tanoesoedibjo-sudah-go-public-nih" title="Kevin Sanjaya Pamer Kemesraan Bareng Valencia Tanoesoedibjo, Sudah Go Public Nih?" data-template-var="title">Kevin Sanjaya Pamer Kemesraan Bareng Valencia Tanoesoedibjo, Sudah Go Public Nih?</a></h5></div></article></li><li class="article-snippet--numbered " id="article-4859011" data-template-name="article-snippet-numbered" data-template-var="container" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:numbered"><figure class="article-snippet--numbered__thumbnail"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4859011/india-open-2022-7-atlet-positif-covid-19-ahsan-hendra-jadi-waswas" title="India Open 2022: 7 Atlet Positif Covid-19, Ahsan / Hendra Jadi Waswas" data-template-var="image"><picture class="big"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="300" height="172" data-src="https://cdn1-production-images-kly.akamaized.net/PlIy6yu4QoNeU0tBeLlg20h4ZEQ=/300x172/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3643267/original/093520800_1637759585-WhatsApp_Image_2021-11-24_at_18.41.10.jpeg" data-width="300" data-height="172" data-high-dpi="https://cdn1-production-images-kly.akamaized.net/MEPTB3uDzHZ5yINC9G-lr5FmsYQ=/600x344/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3643267/original/093520800_1637759585-WhatsApp_Image_2021-11-24_at_18.41.10.jpeg" alt="Mohammad Ahsan/Hendra Setiawan kalah dari pasangan Jepang, Takuro Hoki/Yugo Kobayashi pada babak pertama di Bali International Convention Centre &amp; The Westin Resort, Nusa Dua, Rabu (24/11/2021). (PBSI)" class="js-lazyload big-lazyload" data-template-var="image"></picture></a></figure><article class="article-snippet--numbered__article"><span class="article-snippet--numbered__number">2</span><div class="article-snippet--numbered__wrapper"><span class="article-snippet--numbered__category">Ragam</span><h5 class="article-snippet--numbered__title"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4859011/india-open-2022-7-atlet-positif-covid-19-ahsan-hendra-jadi-waswas" title="India Open 2022: 7 Atlet Positif Covid-19, Ahsan / Hendra Jadi Waswas" data-template-var="title">India Open 2022: 7 Atlet Positif Covid-19, Ahsan / Hendra Jadi Waswas</a></h5></div></article></li><li class="article-snippet--numbered " id="article-4858349" data-template-name="article-snippet-numbered" data-template-var="container" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:numbered"><figure class="article-snippet--numbered__thumbnail"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858349/35-pantun-penutup-berbagai-acara-keren-dan-berkesan" title="35 Pantun Penutup Berbagai Acara, Keren dan Berkesan" data-template-var="image"><picture class="big"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="300" height="172" data-src="https://cdn0-production-images-kly.akamaized.net/Jtu7l6sPUSH9obcNbhGM8C33Tpg=/300x172/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3192362/original/093904100_1595916675-christine-von-raesfeld-DXc13fIYuXE-unsplash.jpg" data-width="300" data-height="172" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/XiszV7-HLwVxiMSA0Ro0BVq2xuM=/600x344/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3192362/original/093904100_1595916675-christine-von-raesfeld-DXc13fIYuXE-unsplash.jpg" alt="Ilustrasi Berpidato/Unsplash" class="js-lazyload big-lazyload" data-template-var="image"></picture></a></figure><article class="article-snippet--numbered__article"><span class="article-snippet--numbered__number">3</span><div class="article-snippet--numbered__wrapper"><span class="article-snippet--numbered__category">Ragam</span><h5 class="article-snippet--numbered__title"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858349/35-pantun-penutup-berbagai-acara-keren-dan-berkesan" title="35 Pantun Penutup Berbagai Acara, Keren dan Berkesan" data-template-var="title">35 Pantun Penutup Berbagai Acara, Keren dan Berkesan</a></h5></div></article></li><li class="article-snippet--numbered " id="article-4858519" data-template-name="article-snippet-numbered" data-template-var="container" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:numbered"><figure class="article-snippet--numbered__thumbnail"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858519/40-kata-kata-bijak-tentang-keheningan-dan-ketenangan" title="40 Kata-Kata Bijak tentang Keheningan dan Ketenangan" data-template-var="image"><picture class="big"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="300" height="172" data-src="https://cdn0-production-images-kly.akamaized.net/fODGzxnpVsnHitpT2qBeW4TBmWI=/300x172/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3589199/original/044810600_1633059134-dingzeyu-li-ie8WW5KUx3o-unsplash_1_.jpg" data-width="300" data-height="172" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/FEQQ2FbMlpbD--gBOa0A3wn-Z3Q=/600x344/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3589199/original/044810600_1633059134-dingzeyu-li-ie8WW5KUx3o-unsplash_1_.jpg" alt="Ilustrasi tenang, kalem, inspirasi. (Photo by Dingzeyu Li on Unsplash)" class="js-lazyload big-lazyload" data-template-var="image"></picture></a></figure><article class="article-snippet--numbered__article"><span class="article-snippet--numbered__number">4</span><div class="article-snippet--numbered__wrapper"><span class="article-snippet--numbered__category">Ragam</span><h5 class="article-snippet--numbered__title"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858519/40-kata-kata-bijak-tentang-keheningan-dan-ketenangan" title="40 Kata-Kata Bijak tentang Keheningan dan Ketenangan" data-template-var="title">40 Kata-Kata Bijak tentang Keheningan dan Ketenangan</a></h5></div></article></li><li class="article-snippet--numbered " id="article-4858528" data-template-name="article-snippet-numbered" data-template-var="container" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:numbered"><figure class="article-snippet--numbered__thumbnail"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858528/40-kata-kata-sedih-hatiku-terluka-pedih-menyayat-jiwa" title="40 Kata-Kata Sedih Hatiku Terluka, Pedih Menyayat Jiwa" data-template-var="image"><picture class="big"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="300" height="172" data-src="https://cdn0-production-images-kly.akamaized.net/j6m8d3-iXBu6ySb11cr5s3-PJkk=/300x172/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3489643/original/042916500_1624345669-daan-mooij-N8l4Ms38rrA-unsplash_Fotor.jpg" data-width="300" data-height="172" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/tH2MauvDs20vy1TTjzhqUlKEx7Y=/600x344/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3489643/original/042916500_1624345669-daan-mooij-N8l4Ms38rrA-unsplash_Fotor.jpg" alt="Ilustrasi pria sedih, kecewa. (Photo by Daan Mooij on Unsplash)" class="js-lazyload big-lazyload" data-template-var="image"></picture></a></figure><article class="article-snippet--numbered__article"><span class="article-snippet--numbered__number">5</span><div class="article-snippet--numbered__wrapper"><span class="article-snippet--numbered__category">Ragam</span><h5 class="article-snippet--numbered__title"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858528/40-kata-kata-sedih-hatiku-terluka-pedih-menyayat-jiwa" title="40 Kata-Kata Sedih Hatiku Terluka, Pedih Menyayat Jiwa" data-template-var="title">40 Kata-Kata Sedih Hatiku Terluka, Pedih Menyayat Jiwa</a></h5></div></article></li><li class="article-snippet--numbered " id="article-4858938" data-template-name="article-snippet-numbered" data-template-var="container" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:numbered"><figure class="article-snippet--numbered__thumbnail"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858938/33-kutipan-inspiratif-islami-untuk-wanita-sarat-nasihat-bijak" title="33 Kutipan Inspiratif Islami untuk Wanita, Sarat Nasihat Bijak" data-template-var="image"><picture class="big"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="300" height="172" data-src="https://cdn0-production-images-kly.akamaized.net/KbwUOLub2wrQpCH6akg6lI1AOKg=/300x172/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3429185/original/081906100_1618457673-hasan-almasi-_X2UAmIcpko-unsplash.jpg" data-width="300" data-height="172" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/o2xXKSk1GcWogeDEzzIULEEjf4w=/600x344/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3429185/original/081906100_1618457673-hasan-almasi-_X2UAmIcpko-unsplash.jpg" alt="Ilustrasi Islami, muslim, puasa. (Photo by Hasan Almasi on Unsplash)" class="js-lazyload big-lazyload" data-template-var="image"></picture></a></figure><article class="article-snippet--numbered__article"><span class="article-snippet--numbered__number">6</span><div class="article-snippet--numbered__wrapper"><span class="article-snippet--numbered__category">Ragam</span><h5 class="article-snippet--numbered__title"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858938/33-kutipan-inspiratif-islami-untuk-wanita-sarat-nasihat-bijak" title="33 Kutipan Inspiratif Islami untuk Wanita, Sarat Nasihat Bijak" data-template-var="title">33 Kutipan Inspiratif Islami untuk Wanita, Sarat Nasihat Bijak</a></h5></div></article></li><li class="article-snippet--numbered " id="article-4858885" data-template-name="article-snippet-numbered" data-template-var="container" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:numbered"><figure class="article-snippet--numbered__thumbnail"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858885/36-kata-kata-nasihat-agar-bersinar-terang-munculkan-kilaumu" title="36 Kata-Kata Nasihat agar Bersinar Terang, Munculkan Kilaumu!" data-template-var="image"><picture class="big"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="300" height="172" data-src="https://cdn0-production-images-kly.akamaized.net/kKGdJ2ddeF5ewBVMEUdsgIG20Xg=/300x172/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3892900/original/043770100_1641186134-sharon-mccutcheon-aMiAtroarMc-unsplash_1_.jpg" data-width="300" data-height="172" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/lSHl9Yo4x6SqXAWaNrYqrz7izPo=/600x344/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3892900/original/043770100_1641186134-sharon-mccutcheon-aMiAtroarMc-unsplash_1_.jpg" alt="Ilustrasi percaya diri, menjadi diri sendiri. (Photo by Sharon McCutcheon on Unsplash)" class="js-lazyload big-lazyload" data-template-var="image"></picture></a></figure><article class="article-snippet--numbered__article"><span class="article-snippet--numbered__number">7</span><div class="article-snippet--numbered__wrapper"><span class="article-snippet--numbered__category">Ragam</span><h5 class="article-snippet--numbered__title"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858885/36-kata-kata-nasihat-agar-bersinar-terang-munculkan-kilaumu" title="36 Kata-Kata Nasihat agar Bersinar Terang, Munculkan Kilaumu!" data-template-var="title">36 Kata-Kata Nasihat agar Bersinar Terang, Munculkan Kilaumu!</a></h5></div></article></li><li class="article-snippet--numbered " id="article-4858557" data-template-name="article-snippet-numbered" data-template-var="container" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:numbered"><figure class="article-snippet--numbered__thumbnail"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858557/6-manfaat-pameran-bagi-siswa-yang-perlu-diketahui" title="6 Manfaat Pameran bagi Siswa yang Perlu Diketahui" data-template-var="image"><picture class="big"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="300" height="172" data-src="https://cdn0-production-images-kly.akamaized.net/2jt41aJx7EWws4mPcz2p4QoQpV8=/300x172/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3475737/original/025116500_1623121560-geri-mis-btpqhY1vWvQ-unsplash.jpg" data-width="300" data-height="172" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/beeveFrvbUxHWP_g7ixH7oPW4AI=/600x344/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3475737/original/025116500_1623121560-geri-mis-btpqhY1vWvQ-unsplash.jpg" alt="Ilustrasi pameran. (Photo by Geri Mis on Unsplash)" class="js-lazyload big-lazyload" data-template-var="image"></picture></a></figure><article class="article-snippet--numbered__article"><span class="article-snippet--numbered__number">8</span><div class="article-snippet--numbered__wrapper"><span class="article-snippet--numbered__category">Ragam</span><h5 class="article-snippet--numbered__title"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858557/6-manfaat-pameran-bagi-siswa-yang-perlu-diketahui" title="6 Manfaat Pameran bagi Siswa yang Perlu Diketahui" data-template-var="title">6 Manfaat Pameran bagi Siswa yang Perlu Diketahui</a></h5></div></article></li><li class="article-snippet--numbered " id="article-4859006" data-template-name="article-snippet-numbered" data-template-var="container" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:numbered"><figure class="article-snippet--numbered__thumbnail"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4859006/hasil-india-open-2022-ahsan-hendra-melenggang-ke-perempat-final" title="Hasil India Open 2022: Ahsan / Hendra Melenggang ke Perempat Final" data-template-var="image"><picture class="big"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="300" height="172" data-src="https://cdn0-production-images-kly.akamaized.net/vteLL4mmWRbiaaps3ILQ-0eZgis=/300x172/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3527054/original/088500600_1627737403-1_AP21212434097293_-_Copy.jpg" data-width="300" data-height="172" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/BlFciAkuak_rjSl80i6W9Pm-MMA=/600x344/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3527054/original/088500600_1627737403-1_AP21212434097293_-_Copy.jpg" alt="Harapan medali perunggu di ganda putra sebagai pelipur lara akhirnya lepas usai Mohammad Ahsan/Hendra Setiawan harus mengakui keunggulan wakil Malaysia, Aaron Chia/Soh Wooi Yik dengan rubber-game dalam partai perebutan medali perunggu, Sabtu (31/7/2021) sore WIB. (Foto: AP/Dita Alangkara)" class="js-lazyload big-lazyload" data-template-var="image"></picture></a></figure><article class="article-snippet--numbered__article"><span class="article-snippet--numbered__number">9</span><div class="article-snippet--numbered__wrapper"><span class="article-snippet--numbered__category">Ragam</span><h5 class="article-snippet--numbered__title"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4859006/hasil-india-open-2022-ahsan-hendra-melenggang-ke-perempat-final" title="Hasil India Open 2022: Ahsan / Hendra Melenggang ke Perempat Final" data-template-var="title">Hasil India Open 2022: Ahsan / Hendra Melenggang ke Perempat Final</a></h5></div></article></li><li class="article-snippet--numbered " id="article-4858848" data-template-name="article-snippet-numbered" data-template-var="container" data-kanal-page="ragam" data-page-type="article" data-component-name="desktop:asides:article-snippet:numbered"><figure class="article-snippet--numbered__thumbnail"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858848/link-live-streaming-piala-afrika-2021-matchday-2-di-vidio-13-16-januari-2022" title="Link Live Streaming Piala Afrika 2021 Matchday 2 di Vidio, 13-16 Januari 2022" data-template-var="image"><picture class="big"><img src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank.png" width="300" height="172" data-src="https://cdn0-production-images-kly.akamaized.net/TsZz3AAyJ9N-tY9REfqpVOVicjg=/300x172/smart/filters:quality(75):strip_icc():format(jpeg)/kly-media-production/medias/3902674/original/015596800_1642066190-ATK_NL__6_.jpeg" data-width="300" data-height="172" data-high-dpi="https://cdn0-production-images-kly.akamaized.net/3wctoNqd0G4B7sf6apn0oeePU8w=/600x344/smart/filters:quality(75):strip_icc():format(webp)/kly-media-production/medias/3902674/original/015596800_1642066190-ATK_NL__6_.jpeg" alt="Link Live Streaming Piala Afrika 2021 Matchday 2 di Vidio, 13-16 Januari 2022. (Sumber : dok. vidio.com)" class="js-lazyload big-lazyload" data-template-var="image"></picture></a></figure><article class="article-snippet--numbered__article"><span class="article-snippet--numbered__number">10</span><div class="article-snippet--numbered__wrapper"><span class="article-snippet--numbered__category">Ragam</span><h5 class="article-snippet--numbered__title"><a class="article-snippet__link" href="https://www.bola.com/ragam/read/4858848/link-live-streaming-piala-afrika-2021-matchday-2-di-vidio-13-16-januari-2022" title="Link Live Streaming Piala Afrika 2021 Matchday 2 di Vidio, 13-16 Januari 2022" data-template-var="title">Link Live Streaming Piala Afrika 2021 Matchday 2 di Vidio, 13-16 Januari 2022</a></h5></div></article></li></ul></section><section class="box " data-component-name="desktop:box"><div class="article-ad article-ad_ad-mr2" data-ad-type="mr2" data-info="ad" data-component-name="desktop:article-ad"><!-- START KLY HALFPAGE1 -->
+<!-- /36504930/www.bola.com/dfp-halfpage1 -->
+<div id='div-gpt-ad-bolacom-halfpage1' data-info='ad'></div>
+<!-- END KLY HALFPAGE1 --></div></section><section id="trending-tags" class="box trending-tags" data-component-name="desktop:box"><header class="box--header" data-component="desktop:box:header" data-component-name="desktop:box:header"><h3 class="box--header__title">Trending</h3></header><ul class="aside-list asides--trending-tags" data-component="desktop:asides:trending-tags" data-cache-key="https_bola.com:bump:xhp_desktop__asides__trending_tags:803a71304c905a7c502b2ffb115b56c7:10_Category#486" data-cache-ttl="10" data-component-name="desktop:asides:trending-tags"><li class="tag-snippet" id="trending_tag_152355" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/cara" class="tag-snippet__link" data-slug="cara"><span class="tag-snippet__text">Cara</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_28212" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/bulutangkis" class="tag-snippet__link" data-slug="bulutangkis"><span class="tag-snippet__text">Bulutangkis</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_58367" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/apa" class="tag-snippet__link" data-slug="apa"><span class="tag-snippet__text">Apa</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_31330" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/f1" class="tag-snippet__link" data-slug="f1"><span class="tag-snippet__text">F1</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_33115" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/nba" class="tag-snippet__link" data-slug="nba"><span class="tag-snippet__text">NBA</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_588520" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/bola-beli" class="tag-snippet__link" data-slug="bola-beli"><span class="tag-snippet__text">Bola Beli</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_27349" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/manfaat" class="tag-snippet__link" data-slug="manfaat"><span class="tag-snippet__text">Manfaat</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_54585" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/lucu" class="tag-snippet__link" data-slug="lucu"><span class="tag-snippet__text">lucu</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li><li class="tag-snippet" id="trending_tag_443979" data-component-name="desktop:asides:tag-snippet"><span class="tag-snippet__hash-tag">#</span><a href="https://www.bola.com/tag/raga-jelita" class="tag-snippet__link" data-slug="raga-jelita"><span class="tag-snippet__text">Raga Jelita</span><i class="tag-snippet__arrow i-arrow pull-right"></i></a></li></ul></section><section class="box " data-component-name="desktop:box"><div class="article-ad article-ad_ad-mr3" data-ad-type="mr3" data-info="ad" data-component-name="desktop:article-ad"><!-- START KLY HALFPAGE2 -->
+<!-- /36504930/www.bola.com/dfp-halfpage2 -->
+<div id='div-gpt-ad-bolacom-halfpage2' data-info='ad'></div>
+<!-- END KLY HALFPAGE2 --></div></section></div></aside></div></div></div><footer role="contentinfo" itemscope="itemscope" itemtype="http://schema.org/WPFooter"><div class="footer__wrapper-loading-image"><img class="footer__loading-image js-lazyload" src="https://cdn-production-assets-kly.akamaized.net/assets/images/blank-transparent.png" data-src="https://cdn-production-assets-kly.akamaized.net/assets/images/articles/loadingbox-bola.gif" width="32" height="32" alt="Loading"></div></footer></div><!-- START KLY TOPFRAME --><!-- /36504930/www.bola.com/dfp-topfrm --><div id="div-gpt-ad-bolacom-topfrm-oop" data-info="ad"></div><!-- END KLY TOPFRAME --><!-- START KLY BOTTOMFRAME --><!-- /36504930/www.bola.com/dfp-bottomfrm --><div id="div-gpt-ad-bolacom-bottomfrm-oop" data-info="ad"></div><!-- END KLY BOTTOMFRAME --><div class="back-to-top" data-component-name="desktop:back-to-top"><a href="#back-to-top" class="back-to-top__link js-back-to-top"><i class="back-to-top__icon i-button-back-to-top"></i></a></div><script async defer type="text/javascript" src="https://cdn-production-assets-kly.akamaized.net/custom_scripts/20220114083602.desktop.bola.js"></script><script   type="text/javascript" src="https://cdn-production-assets-kly.akamaized.net/builds/bola.ef67d56c.js"></script><script type="text/javascript">
+bola.init();
+if(bola.articles) { 
+	if(bola.articles.init) { bola.articles.init(); } 
+	if(bola.articles.init_show) { bola.articles.init_show(); } 
+}
+if(bola.final) { bola.final(); }
+
+        $(document).ready(function() {
+          var lazyload_ad = $("div.lazyload_ad");
+          if (lazyload_ad.size() > 0) {
+            lazyload_ad.lazyLoadAd();
           }
         });
-      }
-    </script>
-    <div id="tve_notification_box"></div><script type="text/javascript" async src="//platform.twitter.com/widgets.js"></script>
-<div class="tl-states-root tl-anim-zoom_in"><div  class="tl-style" id="tve_blank_set" data-state="15">
-        <div class="tve_blank_set tve_post_lightbox tve-leads-lightbox">
-        <div style="visibility: hidden; position: fixed; left: -9000px" class="tl-lb-target tve-leads-track-lightbox-15" data-s-state=""><div class="tve_p_lb_overlay" style=""></div><div data-anim="zoom_in" class="tve_p_lb_content tve-tl-anim tl-anim-zoom_in bSe cnt" style=""><div class="tve_p_lb_inner" id="tve-p-scroller" style=""><article><div class="tve-leads-conversion-object" data-tl-type="lightbox"><div class="tve_flt"><div id="tve_editor" class="tve_shortcode_editor"><div class="tve_p_lb_control tve_editable tve_editor_main_content tve_content_save tve_empty_dropzone"><div style="width: 175px; margin-top: 0px !important;" class="thrv_wrapper tve_image_caption aligncenter">
-<span class="tve_image_frame">
-<img class="tve_image" alt="" src="http://panduanim.com/wp-content/uploads/2016/01/papanajar.png" style="width: 175px;" width="175" height="133" scale="0">
-</span>
-</div><h2 class="tve_p_center pim-lightbox-title">Bingung mulai dari mana?</h2><p class="tve_p_center pim-lightbox-subtitle">daftarkan email anda untuk mendapatkan panduan marketing</p><div class="thrv_wrapper thrv_custom_html_shortcode"><div class="straight-dashed-line"></div></div><div class="thrv_wrapper thrv_lead_generation tve_clearfix tve_blue tve_12 thrv_lead_generation_vertical" data-inputs-count="12" data-tve-style="1" style="margin-top: 30px; margin-bottom: 0;" data-tve-version="1" data-connection="api">
-<div class="thrv_lead_generation_code" style="display: none;"></div>
-<input type="hidden" class="tve-lg-err-msg" value="{&quot;email&quot;:&quot;Please enter a valid email address&quot;,&quot;phone&quot;:&quot;Please enter a valid phone number&quot;,&quot;required&quot;:&quot;Name and Email fields are required&quot;}">
-<div class="thrv_lead_generation_container tve_clearfix"><form action="#" method="post"><input type="hidden" class="tve-f-a-hidden" value="#"><div class="tve_lead_generated_inputs_container tve_clearfix"><div class="tve_lead_fields_overlay"></div><div class="tve_lg_input_container tve_lg_input tve_lg_2"><input type="email" data-field="email" data-required="1" data-validation="email" name="email" placeholder="Masukkan alamat email..." data-placeholder="Masukkan alamat email..." style="padding-right: 10px;" class="pim-lightbox-input"></div><input id="__tcb_lg_fc" type="hidden" name="__tcb_lg_fc" value="YToxOntzOjk6Im1haWxjaGltcCI7czoxMDoiYTkxMWU0YzgxZCI7fQ=="><input id="_asset_group" type="hidden" name="_asset_group" value=""><input id="_asset_option" type="hidden" name="_asset_option" value=""><input id="_back_url" type="hidden" name="_back_url" value="http://panduanim.com/hampir/"><input id="_submit_option" type="hidden" name="_submit_option" value="redirect"><input id="_use_captcha" type="hidden" name="_use_captcha" value=""><input id="_captcha_theme" type="hidden" name="_captcha_theme" value="light"><input id="_captcha_type" type="hidden" name="_captcha_type" value="image"><input id="_captcha_size" type="hidden" name="_captcha_size" value="normal"><input id="mailchimp_optin" type="hidden" name="mailchimp_optin" class="tve-api-extra" value="d"><div style="display: none"></div><div class="tve_lg_input_container tve_submit_container tve tve_lg_submit tve_lg_2">
-<button type="Submit" class="pim-lightbox-submit">Dapatkan Panduannya</button>
-</div></div></form></div>
-</div></div></div></div></div></article></div><a href="javascript:void(0)" class="tve_p_lb_close" style="" title="Close">x</a></div></div></div></div></div><link rel='stylesheet' id='jquery-ui-selectable-css'  href='//code.jquery.com/ui/1.11.4/themes/smoothness/jquery-ui.css?ver=4.9.16' type='text/css' media='all' />
-<link rel='stylesheet' id='dk-style-css'  href='http://panduanim.com/wp-content/plugins/dk-shortcode/css/dk-style.css?ver=4.9.16' type='text/css' media='all' />
-<script type='text/javascript' src='http://panduanim.com/wp-content/plugins/jetpack/_inc/build/photon/photon.min.js?ver=20130122'></script>
-<script type='text/javascript' src='http://panduanim.com/wp-content/plugins/codecanyon-5150066-theia-sticky-sidebar-for-wordpress/js/theia-sticky-sidebar.js?ver=1.3.4'></script>
-<script type='text/javascript' src='https://s0.wp.com/wp-content/js/devicepx-jetpack.js?ver=202114'></script>
-<script type='text/javascript'>
-/* <![CDATA[ */
-var tve_frontend_options = {"is_editor_page":"","page_events":[],"is_single":"1","ajaxurl":"http:\/\/panduanim.com\/wp-admin\/admin-ajax.php","social_fb_app_id":"","dash_url":"http:\/\/panduanim.com\/wp-content\/plugins\/thrive-leads\/thrive-dashboard","translations":{"Copy":"Copy"}};
-/* ]]> */
-</script>
-<script type='text/javascript' src='http://panduanim.com/wp-content/plugins/thrive-leads/tcb/editor/js/thrive_content_builder_frontend.min.js?ver=1.500.18'></script>
-<script type='text/javascript' src='//panduanim.com/wp-content/plugins/thrive-leads/js/frontend.min.js?ver=1.95.19'></script>
-<script type='text/javascript' src='http://panduanim.com/wp-includes/js/comment-reply.min.js?ver=4.9.16'></script>
-<script type='text/javascript' src='http://panduanim.com/wp-content/themes/genesis-sample/lib/js/responsive-menu.js?ver=1.0.0'></script>
-<script type='text/javascript'>
-/* <![CDATA[ */
-var tve_dash_front = {"ajaxurl":"http:\/\/panduanim.com\/wp-admin\/admin-ajax.php","is_crawler":""};
-/* ]]> */
-</script>
-<script type='text/javascript' src='http://panduanim.com/wp-content/plugins/thrive-leads/thrive-dashboard/js/dist/frontend.min.js?ver=1.0.45'></script>
-<script type='text/javascript' src='http://panduanim.com/wp-content/plugins/jetpack/_inc/build/lazy-images/js/lazy-images.min.js?ver=7.1.2'></script>
-<script type='text/javascript' src='http://panduanim.com/wp-includes/js/wp-embed.min.js?ver=4.9.16'></script>
-<script type='text/javascript' src='http://panduanim.com/wp-includes/js/jquery/ui/core.min.js?ver=1.11.4'></script>
-<script type='text/javascript' src='http://panduanim.com/wp-includes/js/jquery/ui/widget.min.js?ver=1.11.4'></script>
-<script type='text/javascript' src='http://panduanim.com/wp-includes/js/jquery/ui/mouse.min.js?ver=1.11.4'></script>
-<script type='text/javascript' src='http://panduanim.com/wp-includes/js/jquery/ui/selectable.min.js?ver=1.11.4'></script>
-<script type='text/javascript' src="https://cdn.jsdelivr.net/jquery.mixitup/latest/jquery.mixitup.min.js?ver=4.9.16"></script>
-<script type='text/javascript' src='http://panduanim.com/wp-content/plugins/dk-shortcode/js/dk_mixitup_script.js?ver=1.0.0'></script>
-<script async="async" type='text/javascript' src='http://panduanim.com/wp-content/plugins/akismet/_inc/form.js?ver=4.1.9'></script>
-<script type="text/javascript">/*<![CDATA[*/if ( !window.TL_Const ) var TL_Const={"security":"c18745c584","ajax_url":"\/\/panduanim.com\/wp-admin\/admin-ajax.php","forms":{"lightbox":{"_key":"15","trigger":"time","trigger_config":{"s":"60","exi":"1"},"form_type_id":2524,"main_group_id":2523,"active_test_id":""}},"action_conversion":"tve_leads_ajax_conversion","action_impression":"tve_leads_ajax_impression","ajax_load":0,"main_group_id":2523,"display_options":{"allowed_post_types":[],"flag_url_match":false},"custom_post_data":{"http_referrer":"https:\/\/www.google.com\/"},"current_screen":{"screen_type":4,"screen_id":2097},"ignored_fields":["email","_captcha_size","_captcha_theme","_captcha_type","_submit_option","_use_captcha","g-recaptcha-response","__tcb_lg_fc","__tcb_lg_msg","_state","_form_type","_error_message_option","_back_url","_submit_option","url","_asset_group","_asset_option","mailchimp_optin"]}/*]]> */</script><script type="text/javascript">var TL_Front = TL_Front || {}; TL_Front.impressions_data = TL_Front.impressions_data || {};TL_Front.impressions_data.lightbox = {"group_id":2523,"form_type_id":2524,"variation_key":"15","active_test_id":0,"output_js":true};</script><script type="text/javascript">
-	(function ($) {
-	$(function () {
-		var event_data = {"form_id":"tve-leads-track-lightbox-15","form_type":"lightbox"},
-			_ms = parseInt(60000),
-			event_triggered = false;
-		event_data.source = 'time';
-		setTimeout(function () {
-			if (!event_triggered) {
-				ThriveGlobal.$j(TL_Front).trigger('showform.thriveleads', event_data);
-				event_triggered = true;
-				}
-			}, _ms);
-				/* Chrome has a stupid bug in which it triggers almost simultaneously "mouseenter" "mouseleave" "mouseenter" if the following applies:
-		 - at page load, the cursor is outside the html element
-		 - the user moves the cursor over the html element
-		 */
-		var chrome_fix_id = 0,
-			me = function (e) { /* mouse enter */
-				clearTimeout(chrome_fix_id);
-				},
-			ml = function (e) {
-				if (e.clientY <= config.s) {
-					chrome_fix_id = setTimeout(function () {
-						if (!event_triggered) {
-							ThriveGlobal.$j(TL_Front).trigger('showform.thriveleads', event_data);
-							}
-						event_triggered = true;
-						c();
-						}, 50);
-					}
-				},
-			c = function () { // cancel
-				$(document).off('mouseenter.exit_intent mouseleave.exit_intent');
-				},
-			config = { // we can adjust this and the code below to allow users to tweak settings
-				s: 20 // sensitivity
-				};
-		$(document).on('mouseleave.exit_intent', ml)
-			.on('mouseenter.exit_intent', me);
-				});
-	})
-(ThriveGlobal.$j);
-</script><script type='text/javascript' src='https://stats.wp.com/e-202114.js' async='async' defer='defer'></script>
-<script type='text/javascript'>
-	_stq = window._stq || [];
-	_stq.push([ 'view', {v:'ext',j:'1:7.1.2',blog:'82621479',post:'2097',tz:'8',srv:'panduanim.com'} ]);
-	_stq.push([ 'clickTrackerInit', '82621479', '2097' ]);
-</script>
-</body></html>
+      </script><script   type="text/javascript" src="https://cdn-production-assets-kly.akamaized.net/builds/grunticon.loader.013163f9.js"></script><script>
+        grunticon([
+          "https://cdn-production-assets-kly.akamaized.net/builds/bola-icons.data.svg.52a9f98a.css",
+          "https://cdn-production-assets-kly.akamaized.net/builds/bola-icons.data.png.ea4ccacb.css",
+          "https://cdn-production-assets-kly.akamaized.net/builds/bola-icons.fallback.96bb9385.css"
+        ]);
+      </script><noscript><link rel="stylesheet" type="text/css" href="https://cdn-production-assets-kly.akamaized.net/builds/liputan6-icons.fallback.4cc76e40.css" /></noscript><script type="text/javascript"></script><div id="initads" data-info="ad"><div class="article-ad article-ad_ad-initd" data-ad-type="initd" data-info="ad" data-component-name="desktop:article-ad"><script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-1089981280613575" crossorigin="anonymous"></script>
+<!-- ARTICLE -->
+<script type="text/javascript">
+    var gpt_gam_ver = 'v05-ADS';
+    gpt_gam_site = window.location.hostname.toUpperCase();
+    gpt_gam_ver = (typeof gpt_gam_site !== 'undefined') ? gpt_gam_ver.toUpperCase() : 'V.0.1';
+    console.log('%c GPT '+gpt_gam_site+' '+gpt_gam_ver ,'color:#d3d3d3; font-size:25px; font-weight: bold; -webkit-text-stroke: 1px black;');
+    
 
-<!--
-Performance optimized by W3 Total Cache. Learn more: https://www.boldgrid.com/w3-total-cache/
+      /* START  - LOAD PUBMATIC, GOOGLE ADS & REVIVE */
+      var PWT={}; //Initialize Namespace
+      var googletag = googletag || {};
+      googletag.cmd = googletag.cmd || [];
+      var gptRan = false;
+      PWT.jsLoaded = function(){ //PubMatic pwt.js on load callback is used to load GPT
+          loadGPT();
+      };
+      var loadGPT = function() {
+          // Check the gptRan flag
+          if (!gptRan) {
+              gptRan = true;
+              var gads = document.createElement('script');
+              var rads = document.createElement('script'); // #1
+              var useSSL = 'https:' == document.location.protocol;
+              gads.src = (useSSL ? 'https:' : 'http:') + '//securepubads.g.doubleclick.net/tag/js/gpt.js';
+              rads.src = (useSSL ? 'https:' : 'http:') + '//adserver.kl-youniverse.com/asyncjs.php'; // #2
+              gads.async = true; 
+              rads.async = true; // #3
+              var node = document.getElementsByTagName('script')[0];
+              node.parentNode.insertBefore(gads, node);
+              node.parentNode.insertBefore(rads, node); // #4
+          }
+      };
+      // Failsafe to call gpt
+      setTimeout(loadGPT, 500);
 
-Page Caching using disk: enhanced 
+      (function() {
+          var purl = window.location.href;
+          var url = '//ads.pubmatic.com/AdServer/js/pwt/156536/763';
+          var profileVersionId = '';
+          if(purl.indexOf('pwtv=')>0){
+              var regexp = /pwtv=(.*?)(&|$)/g;
+              var matches = regexp.exec(purl);
+              if(matches.length >= 2 && matches[1].length > 0){
+                  profileVersionId = '/'+matches[1];
+              }
+          }
+          var wtads = document.createElement('script');
+          wtads.async = true;
+          wtads.type = 'text/javascript';
+          wtads.src = url+profileVersionId+'/pwt.js';
+          var node = document.getElementsByTagName('script')[0];
+          node.parentNode.insertBefore(wtads, node);
 
-Served from: panduanim.com @ 2021-04-09 09:52:55 by W3 Total Cache
--->
+
+          PWT.HookForPrebidRequestBids = function (adUnits) {
+              //console.log('HookForPrebidRequestBids: Original adUnits array :', adUnits);
+              adUnits.forEach(function (au) {
+                  //console.log('HookForPrebidRequestBids: adding kadfloor to pubmatic');
+                  au.bids.forEach(function (bid) {
+                      //if(bid.bidder == 'pubmatic') {
+                      //bid.params.wiid='hooksimpression';}
+                      if (bid.bidder == 'spotx') {
+                          var s_page_url = window.top!=window.parent?document.referrer:window.location.href
+                              bid.params["custom"] = {"page_url": s_page_url};
+                              bid.params["outstream_function"] = function (bid) {
+                              //console.dir(bid);
+                              //const videoDiv = bid.adUnitCode;
+                              const videoDiv = bid.adUnitCode.split('@')[0];
+                              const playerWidth = 300;
+                              const playerHeight = 250;
+                              //window.console.log("[SPOTX][renderer] Handle SpotX custom outstream renderer");
+                              let script = window.document.createElement("script");
+                              script.type = "text/javascript";
+                              script.src = "//cdn.spotxcdn.com/website/integration_test/media/asia/EASIv2.js";
+                              script.setAttribute("data-spotx_channel_id","" + bid.channel_id);
+                              script.setAttribute("data-spotx_vast_url", "" + bid.vastUrl);
+                              script.setAttribute("data-spotx_content_width", playerWidth);
+                              script.setAttribute("data-spotx_content_height",playerHeight);
+                              script.setAttribute("data-spotx_content_page_url",bid.renderer.config.content_page_url);
+                              script.setAttribute("data-spotx_ad_unit", "incontent");
+                              script.setAttribute("data-spotx_autoplay", "1");
+                              script.setAttribute("data-spotx_continue_out_of_view", "1");
+                              script.setAttribute("data-spotx_content_container_id",videoDiv);
+                              var vid_contain = window.document.getElementById(videoDiv);
+                              vid_contain.style.cssText = "display: none; margin-bottom: 20px";
+                              vid_contain.appendChild(script);
+                          }
+                      }
+                  })
+              })
+          };
+      })();
+      /* END  - LOAD PUBMATIC, GOOGLE ADS & REVIVE */
+
+    /*PROTOTYPE CUSTOM FILTERING*/
+    String.prototype.klyFiltering = function (delimiter) {
+        return this.trim().split(delimiter).map(function(t){return t.trim().toLowerCase()}).filter(x => x != "");
+    };
+
+    window.GAMLibrary = {};
+    window.GAMLibrary = {
+        dfpBillboard        :   '/36504930/www.bola.com/dfp-billboard',
+        gamImmersive        :   '/36504930/www.bola.com/dfp-immersive',
+        userAgent           :   navigator.userAgent.toLowerCase(),
+        GAMisTablet         :   /(ipad|tablet|(android(?!.*mobile))|(windows(?!.*phone)(.*touch))|kindle|playbook|silk|(puffin(?!.*(IP|AP|WP))))/.test(this.userAgent),
+        documentMeta       :   function (metaName) {
+                                    var metaResult = '';
+                                    var metas = document.getElementsByTagName('meta');
+                                    if (metas) {
+                                        for (var x = 0, y = metas.length; x < y; x++) {
+                                            if (metas[x].name.toLowerCase() == metaName) {
+                                                metaResult += metas[x].content;
+                                            }
+                                        }
+                                    }
+                                    return metaResult != '' ? metaResult : '';
+                                },
+        inArray             :   function (needle, haystack) {
+                                    var length = haystack.length;
+                                        for (var i = 0; i < length; i++) {
+                                            if (haystack[i] == needle) return true;
+                                        }
+                                    return false;
+                                },
+        arrToLowerCase      :   function (arr){
+                                    return arr.map(function(v,i){
+                                        return v.toLowerCase();
+                                    });
+                                }
+    }
+
+/* DMP CATEGORY LIST */
+window.widgetBLV02 = true;
+window.createDMPTracker = function(adsCatList, dfpTracker, macro) {
+  window.createCDPTracker(adsCatList, macro);
+  parent.window.open(dfpTracker, '_blank');
+};
+
+window.createCDPTracker = function(cat, macro) {
+  var cName = 'liputan6_id_visitor_id=',
+      cVisitorId = document.cookie.split(';').find(v => { return v.match(cName);}),
+      partnerUID = cVisitorId ? decodeURIComponent(cVisitorId).trim().replace(cName, '') : 0,
+      gamMacro = typeof macro === "string" ? JSON.parse(macro) : macro,
+      defaultKey = {
+          adunitId: "ads_adunit_id",
+          advertiserId: "ads_advertiser_id",
+          creativeId: "ads_creative_id",
+          lineitemId: "ads_lineitem_id",
+          orderId: "ads_order_id",
+      };
+
+      actionDetails = Object.keys(gamMacro).reduce((obj, k) => Object.assign(obj, defaultKey[k] ? { [defaultKey[k]]: gamMacro[k] } : { [k]: gamMacro[k] }), {}),
+      cdpData = {
+          action: actionDetails.action ? actionDetails.action : 'ads_click',
+          action_category: cat,
+          action_details: actionDetails.action ? (delete actionDetails.action,actionDetails=actionDetails) : actionDetails,
+          visitor_id: partnerUID
+      };
+
+  console.log("%c DATA CDP : ", "color:#cad315; font-size:12px; font-weight: bold; -webkit-text-stroke: 1px black;", cdpData);
+  console.log("%c PARTNER USER ID : ", "color:#cad315; font-size:12px; font-weight: bold; -webkit-text-stroke: 1px black;", partnerUID);
+
+  partnerUID ? window.VidioPersonalization.sendData(null, cdpData) : '';
+};
+    googletag.cmd.push(function() {
+
+        var urlPath = document.URL,
+        _klyObject = typeof window.kly !== 'undefined' ? window.kly : window.kmklabs,
+        _articlePages = _klyObject && _klyObject.article,
+        _isAdultContent = _articlePages && _articlePages.isAdultContent,
+        isMatcont = "0",
+        isViolateBrandSafety = "0",
+        dfp_brandSafety = new Array('matcont', 'aduhai', 'kelamin', 'vital', 'anal', 'belahan', 'bercinta', 'bergairah', 'gairah', 'intim', 'bikini', 'bokong', 'boob', 'bra', 'bugil', 'celana', 'ciuman', 'cleavage', 'dada', 'dewasa', 'diremas', 'doggie', 'ejakulasi', 'ereksi', 'erotis', 'foreplay', 'kiss', 'seks', 'gangbang', 'horny', 'hot', 'kamasutra', 'keperawanan', 'perawan', 'kondom', 'kontrasepsi', 'libido', 'lingerie', 'masturbasi', 'mature', 'menggairahkan', 'menggoda', 'mesra', 'miss-v', 'mr-p', 'nakal', 'naughty', 'nipple', 'nipples', 'onani', 'oral', 'oral seks', 'organ', 'orgasme', 'paha', 'pantat', 'panties', 'payudara', 'pelecehan', 'telanjang', 'penetrasi', 'penis', 'perkosa', 'perkosaan', 'pole', 'porno', 'pornoaksi', 'pornografi', 'telentang', 'provokatif', 'putting', 'ranjang', 'sex', 'penetratif', 'seksi', 'seksual', 'sensual', 'seronok', 'doll', 'toys', 'skandal', 'sperma', 'striptease', 'striptis', 'syur', 'terangsang', 'tiduri', 'topless', 'vagina', 'vibrator', 'lendir', 'prostitusi', 'homoseks', 'meraba-raba', 'mesum', 'memerkosa', 'rudapaksa', 'kemaluan', 'kasus asusila', 'pemerkosaan', 'hubungan seksual', 'hubungan intim', 'video porno', 'berita hoax', 'ternyata hoax', 'ahed tamimi', 'konflik palestina israel', 'konflik suriah', 'ujaran kebencian', 'g30s', 'kediktatoran arab saudi', 'konflik palestina-israel', 'fpi', 'penembakan', 'pelecehan seksual', 'tips seks', 'komunitas swinger', 'fenomena kelainan seksual', 'penyimpangan seks', 'posisi seks', 'obat kuat', 'bentuk payudara', 'implan payudara', 'chat firza-rizieq', 'anarkisme suporter sepakbola', 'bentrok suporter', 'pengeroyokan', 'penganiayaan', 'begal motor', 'kekerasan pada wartawan', 'pemerkosaan anak', 'pencabulan', 'bentrokan warga', 'bentrokan', 'kasus narkoba', 'akibat merokok', 'bahaya merokok', 'berhenti merokok', 'cara berhenti merokok', 'efek berhenti merokok', 'larangan merokok', 'tips berhenti merokok', 'rokok elektrik', 'pilpres 2019', 'koalisi pilpres 2019', 'koalisi prabowo', 'koalisi jokowi', 'prabowo-sandiaga', 'ratna sarumpaet', 'capres jokowi', 'capres prabowo', 'kebohongan ratna sarumpaet', 'prabowo subianto', 'jemaah ansharut daulah', 'aliran sesat', 'lia eden', 'kisah mualaf', 'penistaan agama', 'suporter tewas', 'gempa palu', 'gempa donggala', 'gempa sulawesi tengah', 'pembunuhan', 'tsunami palu', 'penemuan mayat', 'lion air jatuh di karawang', 'lion air jatuh', 'pembunuhan sadis', 'lion air hilang kontak', 'pesawat jatuh', 'pesawat hilang kontak', 'kecelakaan', 'kapal tenggelam di danau toba', 'kecelakaan bus', 'kapal tenggelam', 'kasus tabrak lari', 'bunuh diri', 'perselingkuhan', 'kisah perselingkuhan', 'razia pasangan mesum', 'seks bebas', 'gangguan jiwa', 'tes keperawanan', 'kontroversi hukuman mati', 'stres dan depresi', 'ahok gugat cerai veronica tan', 'Kanker', 'Impotensi', 'merokok', 'Perokok', 'Rokok', 'tembakau', 'Pelanggaran', 'Tablet', 'Overdosis', 'Jantung', 'Stroke', 'Cancer', 'Narkoba', 'Djarum', 'Ganja', 'BNN', 'Obesitas', 'Osteoporosis', 'Corona', 'Corona di indonesia', 'virus corona', 'virus-corona', 'covid-19', 'wabah corona', 'menewaskan', 'menewaskan orang', 'mengancam nyawa', 'meninggal', 'meninggal dunia', 'orang mati', 'orang tewas', 'pemakaman', 'petugas penyelamat', 'telah meninggal', 'terbunuh', 'tewas', 'tewaskan', 'tim penyelamat', 'wanita meninggal', 'autopsi', 'belasungkawa', 'bencana', 'bencana besar', 'bunuh orang', 'darurat bencana', 'dilaporkan tewas', 'dimakamkan', 'dipastikan tewas', 'ditemukan mati', 'ditemukan tewas', 'hilangnya nyawa', 'identitas korban', 'inalillahi', 'jasad korban', 'jasadnya', 'jenasah wanita', 'jenazah', 'jenazah pria', 'jenazah teridentifikasi', 'jasad', 'kehilangan hidupnya', 'kehilangan nyawa', 'kehilangan nyawanya', 'kematian', 'korban', 'korban jiwa', 'korban meninggal', 'korban tewas', 'mati', 'mayat', 'mayat korban', 'membunuh', 'membunuh istrinya', 'membunuh mereka', 'membunuh suaminya', 'menemui ajal', 'mengalami koma', 'menghembuskan nafas terakhir', 'menimbulkan korban', 'meninggal akibat sakit', 'menyebabkan kematian', 'meregang nyawa', 'meregggut nyawa', 'modar', 'nyawa hilang', 'nyawa melayang', 'penyebab kematian', 'tak bernyawa', 'tak sadarkan diri', 'terkapar', 'tidak bernyawa', 'tutup usia', 'wafat', 'kematian virus', 'kematian wabah', 'korban terinfeksi', 'virus menyerang', 'merenggut nyawa', 'pelayat', 'hilangkan nyawa', 'renggut nyawa', 'wabah', 'keadaan kritis', 'kehilangan darah', 'merenggut jiwa', 'telan nyawa', 'menelan nyawa', 'memakan nyawa', 'dinyatakan meninggal', 'nyawa tak tertolong', 'penyakit', 'sakit pernapasan', 'sesak', 'korona', 'corona', 'odp', 'pdp', 'virus', 'rumah sakit', 'Covid-19', 'virus korona', 'positif korona', 'COVID-19', 'terjangkit COVID-19', 'terinfeksi virus corona', '15lam','agen poker','agen sbobet','al quran','al-quran','alat kontrasepsi','alat vital pria','alergi','anatomi vagina','anjeng','anjing','anjlng','anjrit','anying','apa itu kondom','artis indonesia bugil','artis porno','asu','babi','bahaya masturbasi','bajingan','bandar ceme','bangsat','bego','bentuk payudara','bercinta','bercinta saat hamil','berhubungan intim','berita jateng','bintang film porno','bintang porno','bitch','bocah sd foto mesum','bokne','bom surabaya 2018','boneka seks','bonus deposit','bonus refferal','bonus rollingan','buda','budha','bullshit','bulshit','bulu kemaluan','cara berhubungan intim','cara membuat suami bergairah','cara memperbesar penis','cara mengatasi ejakulasi dini','cara seksual','cashtree','corona','corona di indonesia','covid 19','covid-19','cukur bulu kemaluan','disfungsi ereksi','ejakulasi','ejakulasi dini','ejakulasi wanita','elo','entot','ereksi','ewe','fase menstruasi','fenomena kelainan seksual','foto berhubungan intim','foto intim','fuck','gairah seksual','gangguan seks','ganja','gay','gaya bercinta','gaya bercinta dalam islam','gaya bercinta yang disukai pria','gaya seks','gejala penyakit','gemar368','goblok','gue','gwe','henceut','hindu','hubungan intim','hubungan seksual','ibu hamil','implan payudara','industri film porno','infeksi saluran kencing','injil','insomnia dan tidur','intim','isl4m','islam','itil','jancok','jancuk','jenis alat kontrasepsi','jerawat','jual beli sperma','judi','kafir','kakek cabul','kanibal','kanibalisme','kanker payudara','katolik','kecanduan seks','kemaluan wanita','kencing','kesehatan kulit dan kelamin','kesehatan payudara','kesehatan reproduksi','kesehatan wanita','khusus deewasa','kimpet','klitoris','kondom','kondom pria','kontol','kontolnya','kontrasepsi','kontroversi lgbt','kristen','legalisasi ganja','lgbt','lonte','m3m3k','makanan berbahaya','makanan sehat','masa subur pria','masturbasi','meki','melakukan hubungan intim','memek','mencukur bulu kemaluan','menstruasi','minimal deposit','model hot','model seksi','monyet','mucikari siswi smp','muh4mmad','muhammad','muhammad saw','nabi','ngentot','ngewe','nonok','obat ejakulasi dini','obat pembesar','obat pembesar penis terbaik','oral seks','organ intim wanita','orgasme','orgasme wanita','pakistan','payudara kecil','payudara wanita','pelacur','pembesar penis','pemerkosaan','pengetahuan seks','pengobatan alternatif','penis','penis','penis bengkok','penis besar','penis kecil','penis pria','penyakit sipilis','penyakit vagina','penyimpangan seks','perang dunia','perawatan vagina','perek','poker','poker online','pornoaksi','pornografi','posisi bercinta','posisi hubungan intim suami istri menurut islam','posisi seks','posisi seksual','pria dewasa','pria idaman','prostitusi','puki','puting','puting payudara','rasisme','rokok elektrik','sbobet','seks','seks bebas','seks oral','seksual','seksual lelaki dan perempuan','seksualitas','sex toy','shit','siklus menstruasi','situs poker terpercaya','situs porno','sperma','tai','taik','taruhan online','telanjang','terorisme','test pack','testis','tips bercinta','tips seks','titit','toket','tolol','ukuran normal penis','ukuran penis','ukuran penis normal','ukuran penis orang indonesia','vagina','vagina gatal','vagina wanita','vakum pembesar penis','viagra','video bercinta dengan pasangan','video porno','video seks','virus corona','xxxx online','yesus','polusi','pollution','hardcore','porn','porno','sex','seks','dick','cock','penis','drunk','mabuk','overdose','overdosis','pemanasan global','global warming','climate change','perubahan iklim','drugs','kecanduan','narkoba','dewasa','adult','alkohol','alcohol','nude','telanjang','anal','bdsm','ass','anus','rokok','cabul','erotic','corona','covid','lesbian','teroris','vibrator','vagina','pembunuh','pemerkosaan','perbudakan','rasis','radikal','sperma','waria'), 
+        /* POPULATE META DATA KEYWORDS */
+        dfp_pageTitle = _articlePages && _articlePages.title.klyFiltering(' '),
+        dfp_titles = (typeof dfp_pageTitle !== 'undefined') ? dfp_pageTitle : '',
+        dfp_pageKeywords = GAMLibrary.documentMeta("keywords"),
+        dfp_keyword = dfp_pageKeywords.klyFiltering(","),
+        /* POPULATE META DATA DESC */
+        dfp_pageDesc = GAMLibrary.documentMeta("description"),
+        dfp_desc = dfp_pageDesc.klyFiltering(","),
+        tagForAds = _klyObject.gtm.tag.replace(/[^A-Za-z0-9|\- ]/ig,"").klyFiltering("|"),
+        dfp_keywords = dfp_keyword.concat(dfp_titles, dfp_desc, tagForAds).filter(item=>item!==undefined);
+        /*MATURE CONTENT DEFINED VAR & SET TARGETTING*/
+        isViolateBrandSafety = dfp_brandSafety.some((word)=>{
+            let regWord = new RegExp("(" + word + ")","ig");
+            return dfp_keywords.some((keyword)=>{
+                return keyword.match(regWord);
+            })
+        }) ? "1" : "0";
+                                
+        isMatcont = (_isAdultContent || isViolateBrandSafety === "1") ? "1" : "0";  
+
+        /* DEFINE IMMERSIVE TAG - DO NOT CHANGE THE SLOT ORDER, IMMERSIVE ALWAYS ON THE 1st POSITION - */
+        var gam_immersive = googletag.defineOutOfPageSlot(GAMLibrary.gamImmersive, 'div-gpt-ad-bolacom-immersive-oop').addService(googletag.pubads());
+
+        googletag.defineSlot('/36504930/www.bola.com/dfp-sc', [[300, 250], [250, 250]], 'div-gpt-ad-bolacom-sc').addService(googletag.pubads());
+        googletag.defineSlot('/36504930/www.bola.com/dfp-halfpage1', [[300, 250], [300, 600], [160, 600]], 'div-gpt-ad-bolacom-halfpage1').addService(googletag.pubads());
+        googletag.defineSlot('/36504930/www.bola.com/dfp-halfpage2', [[300, 250], [300, 600], [160, 600]], 'div-gpt-ad-bolacom-halfpage2').addService(googletag.pubads());
+        googletag.defineSlot('/36504930/www.bola.com/dfp-lb', [[970, 250],[970, 90],[728, 90]], 'div-gpt-ad-bolacom-lb').addService(googletag.pubads()).setTargeting("leaderboard_type", ['direct']);
+
+        /*OUT OF PAGE SLOT*/
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-balloon', 'div-gpt-ad-bolacom-balloon-oop').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-contextual', 'div-gpt-ad-bolacom-contextual-oop').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-headline1', 'div-gpt-ad-bolacom-dfp-headline1-oop').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-headline2', 'div-gpt-ad-bolacom-dfp-headline2-oop').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-headline3', 'div-gpt-ad-bolacom-dfp-headline3-oop').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-inarticle', 'div-gpt-ad-bolacom-inarticle-oop').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-middle', 'div-gpt-ad-bolacom-middle').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-nativeOut1', 'div-gpt-ad-bolacom-dfp-nativeOut1-oop').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-nativeOut4', 'div-gpt-ad-bolacom-dfp-nativeOut4-oop').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-nativeOut8', 'div-gpt-ad-bolacom-dfp-nativeOut8-oop').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-nativeOut12', 'div-gpt-ad-bolacom-dfp-nativeOut12-oop').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-popup', 'div-gpt-ad-bolacom-popup-oop').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-newsTag1', 'div-gpt-ad-bolacom-newsTag1-oop').addService(googletag.pubads());
+		googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-crm-1', 'div-gpt-ad-bolacom-crm1-oop').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-crm-2', 'div-gpt-ad-bolacom-crm2-oop').addService(googletag.pubads());
+        googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-crm-3', 'div-gpt-ad-bolacom-crm3-oop').addService(googletag.pubads());
+      
+        googletag.pubads().addEventListener('slotRenderEnded', function(event){
+            var dfp_slotElementId = event.slot.getSlotId().getDomId(),
+                  dfp_lb_keyTargetting = [];
+
+              if (event.slot == gam_immersive) {
+                  gam_immersiveEmpty = event.isEmpty;
+                  if (event.isEmpty) {
+                      gam_billboard = googletag.defineOutOfPageSlot(GAMLibrary.dfpBillboard, 'div-gpt-ad-bolacom-billboard-oop').addService(googletag.pubads());
+                      gam_topfrm    = googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-topfrm', 'div-gpt-ad-bolacom-topfrm-oop').addService(googletag.pubads());
+                      gam_bottomfrm = googletag.defineSlot('/36504930/www.bola.com/dfp-bottomfrm', [468, 60], 'div-gpt-ad-bolacom-bottomfrm-oop').addService(googletag.pubads());
+
+
+                      googletag.display('div-gpt-ad-bolacom-billboard-oop');
+                      googletag.display('div-gpt-ad-bolacom-topfrm-oop');
+                      googletag.display('div-gpt-ad-bolacom-bottomfrm-oop');
+                        
+                    if(!GAMLibrary.GAMisTablet){
+                      gam_skinad    = googletag.defineOutOfPageSlot('/36504930/www.bola.com/dfp-skinad', 'div-gpt-ad-bolacom-skinad-oop').addService(googletag.pubads());
+                      googletag.display('div-gpt-ad-bolacom-skinad-oop');
+                      googletag.pubads().refresh([gam_billboard, gam_topfrm, gam_bottomfrm, gam_skinad]);
+                    }else{
+                      googletag.pubads().refresh([gam_billboard, gam_topfrm, gam_bottomfrm]);
+                    }
+                      
+                  }
+              }
+        });
+  
+        /*  START TARGETING BLOCK   */
+        googletag.pubads().setTargeting("isMatcont", isMatcont);
+	      googletag.pubads().setTargeting("brandsafety", isViolateBrandSafety);
+        
+        if(typeof Krux !== "undefined"){
+            googletag.pubads().setTargeting('ksg', Krux.segments);
+            googletag.pubads().setTargeting('kuid', Krux.user);
+        }
+
+        googletag.pubads().setTargeting("tags",dfp_keywords);
+        googletag.pubads().setTargeting("currentUrl", urlPath);
+        googletag.pubads().setTargeting("type", kmklabs.gtm.type);
+        googletag.pubads().setTargeting("pageType", kmklabs.pageType);
+        googletag.pubads().setTargeting("channel", kmklabs.gtm.subCategory);
+        googletag.pubads().setTargeting("audience", kmklabs.gtm.audience.split("|"));
+        googletag.pubads().setTargeting("isAdvertorial", typeof (isAdvertorial = kmklabs.article && kmklabs.article.isAdvertorial.toString()) === "undefined" ? "false" :  isAdvertorial);   
+        googletag.pubads().setTargeting("isMultipage", typeof (isMultipage = kmklabs.article && kmklabs.article.isMultipage.toString()) === "undefined" ? "false" : isMultipage );
+        googletag.pubads().setTargeting("articleId", kmklabs.gtm.articleId.toString());
+        googletag.pubads().setTargeting("site", kmklabs.site);
+        googletag.pubads().setTargeting("age", typeof (age = kmklabs.gtm.age) === "undefined" ? "false" : kmklabs.gtm.age.toString());
+        googletag.pubads().setTargeting("gender", typeof (gender = kmklabs.gtm.gender) === "undefined" ? "false" : kmklabs.gtm.gender.toString());
+         /*  END TARGETING BLOCK   */
+      
+        /* SET VISITOR ID AS PUBLISHER PROVIDED ID - START*/
+        var cVisitorId = (visId = document.cookie.split('liputan6_id_visitor_id=')[1]) ? visId.split(';')[0].replace(/[^a-zA-Z0-9]/ig,'') : 0;
+        cVisitorId ? googletag.pubads().setPublisherProvidedId(cVisitorId+'kly') : '';
+        /* SET VISITOR ID AS PUBLISHER PROVIDED ID - END*/    
+    
+        googletag.pubads().setCentering(true);
+        googletag.pubads().enableSingleRequest();
+        googletag.pubads().collapseEmptyDivs();
+        googletag.enableServices();
+    });
+
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-immersive-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-sc'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-halfpage1'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-halfpage2'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-lb'); });
+
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-balloon-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-contextual-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-dfp-headline1-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-dfp-headline2-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-dfp-headline3-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-inarticle-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-middle'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-dfp-nativeOut1-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-dfp-nativeOut4-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-dfp-nativeOut8-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-dfp-nativeOut12-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-popup-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-newsTag1-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-crm1-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-crm2-oop'); });
+    googletag.cmd.push(function() { googletag.display('div-gpt-ad-bolacom-crm3-oop'); });
+</script></div></div><script id="rich-card" type="application/ld+json">{"@context":"http:\/\/schema.org","@type":"NewsArticle","author":{"@type":"Person","name":"Faozan Tri Nugroho","url":"https:\/\/bola.com\/me\/faozan.nugroho"},"dateModified":"2021-07-27T14:30:12+07:00","datePublished":"2021-07-27T19:20:43+07:00","description":"Berikut ini rangkuman tentang cara memperbanyak follower Instagram yang mudah dan gratis.","headline":"Cara Memperbanyak Follower Instagram Secara Gratis, Mudah, dan Cepat","image":["https:\/\/cdn0-production-images-kly.akamaized.net\/MgYit0Ee0c3jDqj2wpGSL6VbI1w=\/1200x675\/smart\/filters:quality(75):strip_icc():format(jpeg)\/kly-media-production\/medias\/1689140\/original\/064396500_1503538497-IMG_20170824_083022.jpg","https:\/\/cdn0-production-images-kly.akamaized.net\/f7x2JG-WWuZKSBT8sDB06F4b49U=\/1200x900\/smart\/filters:quality(75):strip_icc():format(jpeg)\/kly-media-production\/medias\/1689140\/original\/064396500_1503538497-IMG_20170824_083022.jpg","https:\/\/cdn0-production-images-kly.akamaized.net\/8IkQqwIN6OhOXCmJ1TcXHhiSsdE=\/1200x1200\/smart\/filters:quality(75):strip_icc():format(jpeg)\/kly-media-production\/medias\/1689140\/original\/064396500_1503538497-IMG_20170824_083022.jpg"],"publisher":{"@type":"Organization","logo":{"@type":"ImageObject","height":60,"width":424,"url":"https:\/\/cdn-production-assets-kly.akamaized.net\/assets\/images\/bola\/amp-logo.png"},"name":"Bola"},"mainEntityOfPage":"https:\/\/www.bola.com\/ragam\/read\/4616653\/cara-memperbanyak-follower-instagram-secara-gratis-mudah-dan-cepat"}</script></body></html>
